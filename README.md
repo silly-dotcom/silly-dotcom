@@ -1,5 +1,5 @@
-I FIGURED IT OUT
-wow im so pro guys
+take this for now untill i figure out how to put photos or make a template
+
 <!--
 **silly-dotcom/silly-dotcom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
