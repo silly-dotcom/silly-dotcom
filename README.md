@@ -1,4 +1,4 @@
-extra links https://colormytree.me/2025/01KBBJT8V1A1GK9HKRBFG2AEMQ
+extra links https://colormytree.me/2025/01KBBJT8V1A1GK9HKRBFG2AEMQ https://www.last.fm/user/oppieenthusiast https://open.spotify.com/user/315kycgock6jgkdxpgri6me37pjq https://www.tiktok.com/@theuher
 
 <!--
 **silly-dotcom/silly-dotcom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
