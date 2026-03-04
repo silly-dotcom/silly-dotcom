@@ -1,5 +1,6 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&redirect=true) IT WORKED YOUR THE GOAT GOOGLE ![Christopher Nolan’s ‘Oppenheimer’ Release Date, Confirmed](https://github.com/user-attachments/assets/22b0340d-0f40-4c75-a0a8-441f84839195)
-<!--
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&redirect=true) IT WORKED YOUR THE GOAT GOOGLE ![Christopher Nolan’s ‘Oppenheimer’ Release Date, Confirmed](https://github.com/user-attachments/assets/22b0340d-0f40-4c75-a0a8-441f84839195)        
+<!--<img width="352" height="714" alt="Screenshot 2026-02-25 at 11-09-32 Pinterest" src="https://github.com/user-attachments/assets/531912a1-43a8-4c19-adb0-40b90bdf88cb" />
+
 **silly-dotcom/silly-dotcom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
