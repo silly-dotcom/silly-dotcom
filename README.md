@@ -6,8 +6,8 @@ hello!!! im kaiser! im a very jolly guy and i dont bite at all, im very friendly
 i am a BIG Oppenheimer enthusiast, and im heavily interested in: the dsmp, countryhumans/balls, dw, and sharks/pallas cats/warrior cats. if you dislike these fandoms, i do not mind, just iwc or iwec if you do wish to int. (i am NOT a weird person in these fandoms, dnf shippers iwc, as i do oc x canon with dream.)
 
 
-okay heres your charlie kirk gif again these are so funny im crine                                                                                                  
+okay heres your charlie kirk gif again these are so funny im crine                                                                                                  I̷̛̩̰̣̝̝̽͐̾̈͐̓͛͝M̸̪̞̀̋͂̌̎̇͘ ̴̛̛̙̝̰͕̙̑͗́̾́͗̂̏G̵̲͈̺̲͓͎͌̈́̂̒̉͝Ờ̴̝͇̍̕̕͝Í̷̼̹͖̱͕̯̤͒̊̓͛̕͜N̷̻̈́͂͐G̴͔̉́̓̽̿͆́͐͌ͅ ̶̦͈̭̪̫͔̙́̈̒̃̑̋͘T̸̡̙͖̼̗͎͚̤̾͌̾̈̈́͒̽̓̎̊Ö̵̱̠͝ ̸̛̛͕̻̝̭̙̺͚̲̏̑̿̍̒̾ͅF̸̮̘̻͙͓̼̀̈̅̆͊̒̕̚Ư̴̜̦̖͚̎͊́́̉͗̋͝ͅĈ̸̨̮̖̺̰͇̹̘̇̔̒̊K̵̛̟͎̪̣͔̲̰̰̔̀I̶̙̼̫͐̅̅͑̌̀̾͌̑͘͜Ṋ̸̥̜̟̹̖̆͌̔͑̈̕G̷͚̯̲̎̂͋̈́̈́͐͑͒̕ ̸̫̮̯̦͌̊̎͗͊̓̉C̶̪̅͊̽͊͝͝R̸͍͚̬͚̝̭̔̉͜A̷̼̖̓̃͐̓̓̒̀̚͝S̵̲̪̲̞̎ͅH̵̨̖̠͎̯̮̖̜̔͛̀
 
 
 ![Charlie Kirk Drinking GIF](https://github.com/user-attachments/assets/47fb92d2-1f55-441e-a51e-fdb35a9b38c4)
-I̷̛̩̰̣̝̝̽͐̾̈͐̓͛͝M̸̪̞̀̋͂̌̎̇͘ ̴̛̛̙̝̰͕̙̑͗́̾́͗̂̏G̵̲͈̺̲͓͎͌̈́̂̒̉͝Ờ̴̝͇̍̕̕͝Í̷̼̹͖̱͕̯̤͒̊̓͛̕͜N̷̻̈́͂͐G̴͔̉́̓̽̿͆́͐͌ͅ ̶̦͈̭̪̫͔̙́̈̒̃̑̋͘T̸̡̙͖̼̗͎͚̤̾͌̾̈̈́͒̽̓̎̊Ö̵̱̠͝ ̸̛̛͕̻̝̭̙̺͚̲̏̑̿̍̒̾ͅF̸̮̘̻͙͓̼̀̈̅̆͊̒̕̚Ư̴̜̦̖͚̎͊́́̉͗̋͝ͅĈ̸̨̮̖̺̰͇̹̘̇̔̒̊K̵̛̟͎̪̣͔̲̰̰̔̀I̶̙̼̫͐̅̅͑̌̀̾͌̑͘͜Ṋ̸̥̜̟̹̖̆͌̔͑̈̕G̷͚̯̲̎̂͋̈́̈́͐͑͒̕ ̸̫̮̯̦͌̊̎͗͊̓̉C̶̪̅͊̽͊͝͝R̸͍͚̬͚̝̭̔̉͜A̷̼̖̓̃͐̓̓̒̀̚͝S̵̲̪̲̞̎ͅH̵̨̖̠͎̯̮̖̜̔͛̀ ![Speed Driving GIF](https://github.com/user-attachments/assets/2dc0563d-53f3-4e95-8e36-f96a8c79ca27)
+![Speed Driving GIF](https://github.com/user-attachments/assets/2dc0563d-53f3-4e95-8e36-f96a8c79ca27)
