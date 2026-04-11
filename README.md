@@ -6,7 +6,7 @@ hello!!! im kaiser! im a very jolly guy and i dont bite at all, im very friendly
 i am a BIG Oppenheimer enthusiast, and im heavily interested in: the dsmp, countryhumans/balls, dw, and sharks/pallas cats/warrior cats. if you dislike these fandoms, i do not mind, just iwc or iwec if you do wish to int. (i am NOT a weird person in these fandoms, dnf shippers iwc, as i do oc x canon with dream.)
 
 
-okay heres your charlie kirk gif again these are so funny im crine
+okay heres your charlie kirk gif again these are so funny im crine                                                                                                  IM GOING T0O FUCKING CRASH
 
 
 ![Charlie Kirk Drinking GIF](https://github.com/user-attachments/assets/47fb92d2-1f55-441e-a51e-fdb35a9b38c4)
