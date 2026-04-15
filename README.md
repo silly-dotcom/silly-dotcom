@@ -25,7 +25,7 @@ friend ds...
 [alex #1treeyume](https://github.com/spacebeetles)
 
 
-hi otto since you dont have a github i have this
+hi otto since you dont have a github i have this (this is an inside joke dont ask for context)
 <img width="1920" height="1080" alt="Screenshot from 2026-04-15 13-24-27" src="https://github.com/user-attachments/assets/61263280-9ad3-4efb-8ba3-a40714de4123" />
 
 
