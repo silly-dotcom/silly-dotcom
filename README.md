@@ -12,7 +12,22 @@ im very happy and jolly, so dont be scared to interact! though, check out my [st
  <img width="160" height="180" alt="pony-town-WHY DO I HAVE SO MANYT OPPENHE-lie-4x(1)" src="https://github.com/user-attachments/assets/3e31b2a0-214b-4e92-903f-e537686ef54a" />
 
 
-not much down here, ill continue this soon
+friend ds...
+[jesse/hera](https://github.com/orderofthepig)
+[lukas/noli](https://github.com/gaylukas)
+[laineed](https://github.com/laineed)
+[slimxcl/olivia](https://github.com/slimxcl)
+[wilbur](https://github.com/dollbur)
+[america](https://github.com/fiftystates)
+[leo/jasper](https://github.com/killbrickedd)
+[benji](https://github.com/suguruberry)
+[ireland](https://github.com/ire-landd)
+[alex #1treeyume](https://github.com/spacebeetles)
+
+
+hi otto since you dont have a github i have this
+<img width="1920" height="1080" alt="Screenshot from 2026-04-15 13-24-27" src="https://github.com/user-attachments/assets/61263280-9ad3-4efb-8ba3-a40714de4123" />
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&redirect=true)
