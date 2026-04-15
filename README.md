@@ -4,9 +4,9 @@
 
 
 <img width="168" height="180" alt="pony-town-9th oppenheimer im crine-boop-sit-blush-4x" src="https://github.com/user-attachments/assets/e2445cab-bdfa-4798-8a25-37ae369c78f2" /> heya! im kaiser! just ypur average ponytown guy. or atleast you think.. smirks with my #1oppenheimerenthusiast mug
-|
-|
-V
+-
+-
+-
 im very happy and jolly, so dont be scared to interact! though, check out my [strawpage](https://oppenheimeryaay.straw.page/) for all my fandoms if ya have certain fandom dnis like the dsmp, countryhumans/balls, or anything else in my interests.
 
  <img width="160" height="180" alt="pony-town-WHY DO I HAVE SO MANYT OPPENHE-lie-4x(1)" src="https://github.com/user-attachments/assets/3e31b2a0-214b-4e92-903f-e537686ef54a" />
