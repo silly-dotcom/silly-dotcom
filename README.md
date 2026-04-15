@@ -1,6 +1,6 @@
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22The+father+of+the+atom+bomb.%22;%22I+am+become+death%2C+destroyer+of+worlds.%22;%231oppenheimerenthusiast)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22The+father+of+the+atom+bomb.%22;%22I+am+become+death%2C;Destroyer+of+worlds.%22;%231oppenheimerenthusiast)](https://git.io/typing-svg)
 
 
 this is a wip son
