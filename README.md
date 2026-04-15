@@ -5,7 +5,7 @@
 
 <img width="168" height="180" alt="pony-town-9th oppenheimer im crine-boop-sit-blush-4x" src="https://github.com/user-attachments/assets/e2445cab-bdfa-4798-8a25-37ae369c78f2" /> heya! im kaiser! just ypur average ponytown guy. or atleast you think.. smirks with my #1oppenheimerenthusiast mug
 -
--
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Rock+the+casbar%2C+Rock+the+casbar!%22;%22Everybody+wants+to+rule+the+world.%22;%22Oh+my+little+soldier+boy...%22;%22Should've+been+a+politician..%22;%22We'll+meet+again%2C+some+sunny+day.%22)](https://git.io/typing-svg)
 -
 im very happy and jolly, so dont be scared to interact! though, check out my [strawpage](https://oppenheimeryaay.straw.page/) for all my fandoms if ya have certain fandom dnis like the dsmp, countryhumans/balls, or anything else in my interests.
 
