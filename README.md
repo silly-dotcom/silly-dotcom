@@ -8,9 +8,7 @@
 -
 -
 im very happy and jolly, so dont be scared to interact! though, check out my [strawpage](https://oppenheimeryaay.straw.page/) for all my fandoms if ya have certain fandom dnis like the dsmp, countryhumans/balls, or anything else in my interests.
--
--
--
+
  <img width="160" height="180" alt="pony-town-WHY DO I HAVE SO MANYT OPPENHE-lie-4x(1)" src="https://github.com/user-attachments/assets/88378725-c347-45e7-a969-13059a7ea16f" />
 -
 -
