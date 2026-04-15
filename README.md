@@ -11,10 +11,8 @@ im very happy and jolly, so dont be scared to interact! though, check out my [st
 -
 -
 -
- <img width="160" height="180" alt="pony-town-WHY DO I HAVE SO MANYT OPPENHE-lie-4x(1)" src="https://github.com/user-attachments/assets/3e31b2a0-214b-4e92-903f-e537686ef54a" />
--
--
--
+ <img width="160" height="180" alt="pony-town-WHY DO I HAVE SO MANYT OPPENHE-lie-4x(1)" src="https://github.com/user-attachments/
+ 
 friend ds...
 [jesse/hera](https://github.com/orderofthepig)
 [lukas/noli](https://github.com/gaylukas)
