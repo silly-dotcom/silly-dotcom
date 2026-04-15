@@ -12,6 +12,3 @@ this is a wip son
 
 
 
-dependencies {
-    compile 'com.klinkerapps:link_builder:2.0.5'
-}
