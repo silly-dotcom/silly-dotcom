@@ -1,5 +1,3 @@
-<img width="1920" height="1080" alt="Screenshot from 2026-04-16 13-20-27" src="https://github.com/user-attachments/assets/b5818592-9e1f-4d60-a35d-f4a2071fe5bc" />
-
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Robert+J+Oppenheimer.%22;%22The+Father+of+the+Atom+Bomb.%22;%22I+am+become+Death%2C;Destroyer+of+Worlds.%22;%231Oppenheimerenthusiast)](https://git.io/typing-svg)
 
@@ -27,7 +25,9 @@ friend ds...
 
 
 hi otto since you dont have a github i have this (this drawing is an inside joke dont ask for context)
-<img width="1920" height="1080" alt="Screenshot from 2026-04-15 13-24-27" src="https://github.com/user-attachments/assets/61263280-9ad3-4efb-8ba3-a40714de4123" />
+<img width="1920" height="1080" alt="Screenshot from 2026-04-15 13-24-27" src="https://github.com/user-attachments/assets/61263280-9ad3-4efb-8ba3-a40714de4123" /> <img width="1920" height="1080" alt="Screenshot from 2026-04-16 13-20-27" src="https://github.com/user-attachments/assets/b5818592-9e1f-4d60-a35d-f4a2071fe5bc" />
+
+
 
 
 
