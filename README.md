@@ -35,6 +35,14 @@ hi otto since you dont have a github i have this (this drawing is an inside joke
 
 
 
+
+
+hi okay spot for characters/people i consider me yo kins or sum ig idk what to call it
+ hi okay technoblade: idk hes lowk justn me man. im crine <img width="168" height="208" alt="pony-town-👑 - me lowk - c_h enc, w2i--sit-toy428-4x" src="https://github.com/user-attachments/assets/93430633-c450-4875-9f09-914c440b7c1e" /> okay now shelly hi shelly shes verry happy and jolly just like me trust trust
+<img width="172" height="208" alt="pony-town-🤠🦖 - me - c_h, w2i--boop-sit-4x" src="https://github.com/user-attachments/assets/b721c793-4494-4a94-a2ce-ed7a8fdfbd9c" /> hi coal okay coal very grumpy and likes food. literally me son. <img width="156" height="164" alt="pony-town-❄🏳 - _bworf!_ - c_h, w2i--lie-4x(1)" src="https://github.com/user-attachments/assets/30b88b78-2ab4-4e93-a24b-6d514a6a21ba" />
+
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&redirect=true)
 
 
