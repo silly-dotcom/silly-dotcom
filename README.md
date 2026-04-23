@@ -1,4 +1,4 @@
-IMPORTANT NOTE: I MAY HIDE OR IGNORE YOU/YOUR INT IF IM ON YOUR DNI/YOUR DNI IS WAY TOO LONG FOR A PONY GAME.
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Robert+J+Oppenheimer.%22;%22The+Father+of+the+Atom+Bomb.%22;%22I+am+become+Death%2C;Destroyer+of+Worlds.%22;%231Oppenheimerenthusiast)](https://git.io/typing-svg)
 
 <img width="168" height="180" alt="pony-town-9th oppenheimer im crine-boop-sit-blush-4x" src="https://github.com/user-attachments/assets/e2445cab-bdfa-4798-8a25-37ae369c78f2" /> heya! im kaiser! just ypur average ponytown guy. or atleast you think.. smirks with my #1oppenheimerenthusiast mug
