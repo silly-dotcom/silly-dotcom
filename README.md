@@ -7,7 +7,7 @@
 - [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&redirect=true)
 
 
-im very happy and jolly, so dont be scared to interact! though, check out my [strawpage](https://oppenheimeryaay.straw.page/) for all my fandoms if ya have certain fandom dnis like the dsmp, countryhumans/balls, or anything else in my interests.
+im very happy and jolly, so dont be scared to interact! though, check out my [strawpage](https://oppenheimeryaay.straw.page/) [pspspsp new replies...](https://newreplies.straw.page/) for all my fandoms if ya have certain fandom dnis like the dsmp, countryhumans/balls, or anything else in my interests.
 
  <img width="160" height="180" alt="pony-town-WHY DO I HAVE SO MANYT OPPENHE-lie-4x(1)" src="https://github.com/user-attachments/assets/88378725-c347-45e7-a969-13059a7ea16f" />
 
