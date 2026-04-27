@@ -1,4 +1,4 @@
-heavy before you int: i have problems with getting motivated to eat/not being picky. i will complain about being hungry and not do anything about it. if you get annoyed by this. intwcare/caution or dni.
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Robert+J+Oppenheimer.%22;%22The+Father+of+the+Atom+Bomb.%22;%22I+am+become+Death%2C;Destroyer+of+Worlds.%22;%231Oppenheimerenthusiast)](https://git.io/typing-svg)
 [dni read this before you int](https://bigfatdnis.straw.page/) 
 
