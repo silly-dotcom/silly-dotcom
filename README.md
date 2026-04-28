@@ -6,7 +6,7 @@
 -
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Rock+the+casbar%2C+Rock+the+casbar!%22;%22Everybody+wants+to+rule+the+world.%22;%22Oh+my+little+soldier+boy...%22;%22Should've+been+a+politician..%22;%22We'll+meet+again%2C+some+sunny+day.%22)](https://git.io/typing-svg)
 - [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&redirect=true)
-[SIGN MY ALTERSPRING!!!!!!!](https://alterspring.org/@oppieenthusiast)
+
 
 im very happy and jolly, so dont be scared to interact! though, check out my [strawpage](https://oppenheimeryaay.straw.page/) [pspspsp new replies...](https://newreplies.straw.page/) for all my fandoms if ya have certain fandom dnis like the dsmp, countryhumans/balls, or anything else in my interests.
 
