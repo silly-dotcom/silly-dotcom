@@ -48,7 +48,7 @@ the dsmp
 cod/tf141
 warrior cats
 and whatever else i remember later
-<img width="669" height="288" alt="Screenshot 2026-05-05 at 12-25-47 🎮 Pony Town" src="https://github.com/user-attachments/assets/c46ea05a-8d13-435e-90fc-9fba971ea399" />
+<img width="300" height="300" alt="Screenshot 2026-05-05 at 12-25-47 🎮 Pony Town" src="https://github.com/user-attachments/assets/c46ea05a-8d13-435e-90fc-9fba971ea399" />
 
 
 </details>
