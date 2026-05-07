@@ -35,7 +35,7 @@ i have issues with eating and emotion issues
 
 
 </details>
-
+[spam follow acc](https://github.com/oppieenthusiast)
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&redirect=true) <img width="300" height="300" alt="Screenshot 2026-05-06 at 15-38-28 🎮 Pony Town" src="https://github.com/user-attachments/assets/41ab68bb-df88-4ff4-bb44-44a45d6c1d3e" />
 
 
