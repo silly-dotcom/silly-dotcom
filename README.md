@@ -2,7 +2,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Robert+J+Oppenheimer.%22;%22The+Father+of+the+Atom+Bomb.%22;%22I+am+become+Death%2C;Destroyer+of+Worlds.%22;%231Oppenheimerenthusiast)](https://git.io/typing-svg)
 [READ MY OC LORE FANFIC!!!!](https://www.wattpad.com/story/410942967-oc-lore-story-ig) 
 
-<details>
+<details>                                                               <img width="378" height="372" alt="Screenshot 2026-05-06 at 15-21-33 (JPEG Image 378 × 372 pixels)" src="https://github.com/user-attachments/assets/222a2e98-cf1f-43c0-865f-69a1e191823c" />
+
 
 <summary>Info about me</summary>
 
@@ -10,8 +11,7 @@ hi! im kaiser! i go by h/h or t/t.
 
 i love all my friends! wahoo!!
 
-can you tell i like oppenheimer                                        <img width="735" height="802" alt="Screenshot 2026-05-07 at 09-57-01 (JPEG Image 735 × 802 pixels)" src="https://github.com/user-attachments/assets/dbff7433-afb5-44c1-a47a-5cd612b93841" />
-
+can you tell i like oppenheimer
 
 ive been on github for over a year! holy shit!
 
