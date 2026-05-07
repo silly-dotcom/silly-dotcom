@@ -48,3 +48,4 @@ hi otto since you dont have a github i have this (this drawing is an inside joke
 
 
 
+that fucking friendgroup that i hate (love) [otto](https://github.com/ottonass) [olivia](https://github.com/slimxcl) [sushki](https://github.com/mistersushki) and me. hi guys
