@@ -30,8 +30,8 @@ friend ds...
 [alterspring cuz idk where 2 put this](https://alterspring.org/@oppieenthusiast)
 [other alterspring sign both of them](https://alterspring.org/@enemylines)
 
-OTTO HAS FUCKIGN GITHUB JACKJPTO!!! go follow him
-[otto](https://github.com/ottonass)
+[OTTO](https://github.com/ottonass) HAS FUCKIGN GITHUB JACKJPTO!!! go follow him and click the otto word or whatever
+
 
 [spam follow acc im remaking!](https://github.com/oppieenthusiast)
 
