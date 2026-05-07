@@ -1,3 +1,18 @@
+<details>
+
+<summary>this is a test hi</summary>
+
+### homosexual
+
+You can add text within a collapsed section.
+
+You can add an image or a code block, too.
+
+```ruby
+   puts "Hello World"
+```
+
+</details>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Robert+J+Oppenheimer.%22;%22The+Father+of+the+Atom+Bomb.%22;%22I+am+become+Death%2C;Destroyer+of+Worlds.%22;%231Oppenheimerenthusiast)](https://git.io/typing-svg)
 [READ MY OC LORE FANFIC!!!!](https://www.wattpad.com/story/410942967-oc-lore-story-ig) 
