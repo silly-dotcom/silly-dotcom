@@ -3,7 +3,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Robert+J+Oppenheimer.%22;%22The+Father+of+the+Atom+Bomb.%22;%22I+am+become+Death%2C;Destroyer+of+Worlds.%22;%231Oppenheimerenthusiast)](https://git.io/typing-svg)
 [READ MY OC LORE FANFIC!!!!](https://www.wattpad.com/story/410942967-oc-lore-story-ig) <img width="100" height="100" alt="Oppenheimer - Handwritten Script Poster" src="https://github.com/user-attachments/assets/36903884-9ffa-4e29-9ef6-35fd847f9a0d" />
 
-<details>                                                               <img width="378" height="372" alt="Screenshot 2026-05-06 at 15-21-33 (JPEG Image 378 × 372 pixels)" src="https://github.com/user-attachments/assets/222a2e98-cf1f-43c0-865f-69a1e191823c" />
+<details>                                                               <img width="300" height="300" alt="Screenshot 2026-05-06 at 15-21-33 (JPEG Image 378 × 372 pixels)" src="https://github.com/user-attachments/assets/222a2e98-cf1f-43c0-865f-69a1e191823c" />
 
 
 <summary>Info about me</summary>
