@@ -1,5 +1,6 @@
 
 
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Robert+J+Oppenheimer.%22;%22The+Father+of+the+Atom+Bomb.%22;%22I+am+become+Death%2C;Destroyer+of+Worlds.%22;%231Oppenheimerenthusiast)](https://git.io/typing-svg)
 [READ MY OC LORE FANFIC!!!!](https://www.wattpad.com/story/410942967-oc-lore-story-ig) <img width="100" height="100" alt="Oppenheimer - Handwritten Script Poster" src="https://github.com/user-attachments/assets/36903884-9ffa-4e29-9ef6-35fd847f9a0d" />
 
@@ -47,7 +48,7 @@ the dsmp
 cod/tf141
 warrior cats
 and whatever else i remember later
-
+<img width="300" height="300" alt="Screenshot 2026-05-06 at 15-38-13 🎮 Pony Town" src="https://github.com/user-attachments/assets/77793229-1966-43ca-a19b-1781153d185e" />
 </details>
 
 
