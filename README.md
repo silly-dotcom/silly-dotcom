@@ -36,11 +36,7 @@ i have issues with eating and emotion issues
 
 </details>
 
- <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=241f31&bar_color_cover=false">
-  </a>
-</p>
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=241f31&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  <img width="300" height="300" alt="Screenshot 2026-05-06 at 15-38-28 🎮 Pony Town" src="https://github.com/user-attachments/assets/41ab68bb-df88-4ff4-bb44-44a45d6c1d3e" />
 
 
