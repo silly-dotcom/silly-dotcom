@@ -53,7 +53,7 @@ and whatever else i remember later
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Los+Alamos+National+Labratory.%22;%22They+made+an+atom+bomb!%22)](https://git.io/typing-svg)
 
-<img width="374" height="328" alt="Charlie Kirk Drinking GIF" src="https://github.com/user-attachments/assets/a20f4bb5-78f8-44d3-a916-532f96d8dfcd" /><img width="374" height="328" alt="Charlie Kirk Drinking GIF" src="https://github.com/user-attachments/assets/72894a2c-2603-4208-b929-5105d6d0f28e" />
+<img width="300" height="300" alt="Charlie Kirk Drinking GIF" src="https://github.com/user-attachments/assets/a20f4bb5-78f8-44d3-a916-532f96d8dfcd" /><img width="374" height="328" alt="Charlie Kirk Drinking GIF" src="https://github.com/user-attachments/assets/72894a2c-2603-4208-b929-5105d6d0f28e" />
 <img width="374" height="328" alt="Charlie Kirk Drinking GIF" src="https://github.com/user-attachments/assets/a20f4bb5-78f8-44d3-a916-532f96d8dfcd" /><img width="374" height="328" alt="Charlie Kirk Drinking GIF" src="https://github.com/user-attachments/assets/72894a2c-2603-4208-b929-5105d6d0f28e" /><img width="374" height="328" alt="Charlie Kirk Drinking GIF" src="https://github.com/user-attachments/assets/8cc2089e-52eb-4379-8e1d-40da39577eac" /><img width="374" height="328" alt="Charlie Kirk Drinking GIF" src="https://github.com/user-attachments/assets/ff0b3efc-f138-4c27-bd49-3442ce1a2c49" />
 
 
