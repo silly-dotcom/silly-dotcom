@@ -30,7 +30,7 @@ can you tell i love all my friends
 
 i have issues with eating and emotion issues
 
-<img width="300" height="300" alt="Screenshot 2026-05-06 at 15-40-17 🎮 Pony Town" src="https://github.com/user-attachments/assets/51e74e37-6868-41bb-86f4-8f569605b27c" />
+<img width="100" height="300" alt="Screenshot 2026-05-06 at 15-40-17 🎮 Pony Town" src="https://github.com/user-attachments/assets/51e74e37-6868-41bb-86f4-8f569605b27c" />
 
 
 </details>
