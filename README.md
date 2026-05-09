@@ -26,7 +26,7 @@ if i dont whisper my friend for long enough i literally will be found dead in th
 
 <details>
 
-<summary>i will burst into nervousness next sunday also click me for stuff</summary>
+<summary>can my confidence not die also click me</summary>
 
 can you tell i love all my friends
 
