@@ -6,7 +6,7 @@
 
 <details>                                                               
 
-<summary>read thia NOW</summary>
+<summary>read this NOW</summary>
 
 hi! im kaiser! i go by h/h or t/t.
 
@@ -26,7 +26,7 @@ if i dont whisper my friend for long enough i literally will be found dead in th
 
 <details>
 
-<summary>other info</summary>
+<summary>i will burst into nervousness next sunday also click me for stuff</summary>
 
 can you tell i love all my friends
 
