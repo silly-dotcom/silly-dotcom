@@ -7,7 +7,7 @@
 <details>                                                               <img width="300" height="300" alt="Screenshot 2026-05-06 at 15-21-33 (JPEG Image 378 × 372 pixels)" src="https://github.com/user-attachments/assets/222a2e98-cf1f-43c0-865f-69a1e191823c" />
 
 
-<summary>Info about me</summary>
+<summary>read thia NOW</summary>
 
 hi! im kaiser! i go by h/h or t/t.
 
