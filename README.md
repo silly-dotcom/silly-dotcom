@@ -17,7 +17,9 @@ can you tell i like oppenheimer
 
 ive been on github for over a year! holy moly!
 
-g
+im nervous and i hate it
+
+if i dont whisper my friend for long enough i literally will be found dead in the bronx because i never had the courage to whisper them a simple hey PLEASE WHISPER ME FIRST IF WE HAVENT TALKED IN FOREVER PLS I BEG OF YOUY IMSIRRY MY CONFIDENCE IS SHIT
 </details>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6C3700&width=435&lines=%22Rock+the+casbar%2C+Rock+the+casbar!%22;%22Everybody+wants+to+rule+the+world.%22;%22Oh+my+little+soldier+boy...%22;%22Should've+been+a+politician..%22;%22We'll+meet+again%2C+some+sunny+day.%22)](https://git.io/typing-svg) <img width="100" height="100" alt="كل ما مر وقت أكثر تصير اقبح" src="https://github.com/user-attachments/assets/7897367e-06a5-4693-862f-2ffe3e50d220" /> 
@@ -30,6 +32,8 @@ g
 can you tell i love all my friends
 
 i have issues with eating and emotion issues
+
+i get shy easily and will not speak for shi unless your a friend
 
 <img width="300" height="300" alt="Screenshot 2026-05-06 at 15-40-17 🎮 Pony Town" src="https://github.com/user-attachments/assets/51e74e37-6868-41bb-86f4-8f569605b27c" />
 
