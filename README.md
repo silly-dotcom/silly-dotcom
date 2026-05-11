@@ -26,13 +26,15 @@ if i dont whisper my friend for long enough i literally will be found dead in th
 
 <details>
 
-<summary>can my confidence not die also click me</summary>
+<summary>more info</summary>
 
 can you tell i love all my friends
 
 i have issues with eating and emotion issues
 
-i get shy easily and will not speak for shi unless your a friend
+i get shy or nervous easily
+
+jhjjgnjgnjnjdnjjnfnjn..,.,.,.,.,. oppen hfueniehmeer...,,,..,
 
 <img width="300" height="300" alt="Screenshot 2026-05-06 at 15-40-17 🎮 Pony Town" src="https://github.com/user-attachments/assets/51e74e37-6868-41bb-86f4-8f569605b27c" />
 
