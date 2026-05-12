@@ -53,6 +53,7 @@ Oppenheimer
 the dsmp
 cod/tf141
 warrior cats
+my oc x canon loverduo I LOVE THEM SO MUCH PLEASE FEEL FREE TO SHIP THEM/ASK THINGS ABOUT THEM THERE SO CUTE OFMMYGOD
 and whatever else i remember later
 <img width="300" height="300" alt="Screenshot 2026-05-05 at 12-25-47 🎮 Pony Town" src="https://github.com/user-attachments/assets/c46ea05a-8d13-435e-90fc-9fba971ea399" />
 
@@ -66,7 +67,29 @@ IM SORRY CHARLIE KIRK COMUNITY IT LAGS IF I HAVE YOU ON HERE<img width="564" hei
 
 
 
+<details>                                                               
 
+<summary>things abt chat, party invites, ect</summary>
+
+i may have my chat bubbles set to friends/party/private only if im tired of all the chat bubbles around me, so i may not reply unless your a friend/in party.
+
+whispers are ONLY friends and party. i dont usually like random whispers. if you want to ask me/say something, ask on my atabook or ask a friend to whisper me there question/grab my attention to answer it.
+
+party invites are friends only. im in a party with friends and id like to keep it that way.
+
+i dont mind being thrown random items but it does get annoying after a while.
+
+i dont mind booping, but dont do it too much. this doesn't apply to friends since i love them dearly aww
+
+i dont care about you kissing my pony either, i dont do multiship unless its oc lore or i like to many ships and i cant choose so your free to kiss, boop, int or whatever else with me with it being a ship or not, i really dont care and i dont force my ships on anyone, cause its not my problem if you ship my oc x canon or not.
+
+im ALWAYS sitting with friends unless there offline or im to awkward to sit with them, but feel free to sit with me always! i love cuds and like i said, idgaf abt ships so it doesnt matter if you sit with me cause of a ship or because hell yeah c*h.
+
+
+<img width="664" height="318" alt="Screenshot 2026-05-11 at 13-23-29 🎮 Pony Town" src="https://github.com/user-attachments/assets/0b1f142f-de30-4e7b-997b-fadb4d64c4fc" />
+
+
+</details>
 
 
 
