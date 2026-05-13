@@ -94,7 +94,7 @@ im ALWAYS sitting with friends unless there offline or im to awkward to sit with
 
 
 
-that fucking friendgroup that i hate (love) [otto](https://github.com/ottonass) [olivia](https://github.com/slimxcl) [sushki](https://github.com/mistersushki) and me. hi guys im gonna add some random screenshots here for comedic effect
+that fucking friendgroup that i hate (love) ((also #onlineparents)) [otto](https://github.com/ottonass) [olivia](https://github.com/slimxcl)  ((#onlinesibling)) [sushki](https://github.com/mistersushki) and me. hi guys im gonna add some random screenshots here for comedic effect
 
 <img width="300" height="300" alt="Screenshot 2026-05-07 at 11-21-07 🎮 Pony Town" src="https://github.com/user-attachments/assets/bc6c133b-7c3b-4dc1-bce2-cb7831fc02b3" />
 
