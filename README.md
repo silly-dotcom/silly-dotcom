@@ -5,10 +5,11 @@
 
 
 
+
+
+
+
 <h1 align="center">ᴡɪᴘ.</h1>
 
 
-
-<h1 align="center">ᴡɪᴘ.</h1>
-
-
+<h1 align="center">ꜱɪɢɴ ꜱᴛʀᴀᴡ ᴏʀ ᴀᴛᴀ ʙᴇꜰᴏʀᴇ ʏᴏᴜ ɢᴏ..</h1>
