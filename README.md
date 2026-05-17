@@ -9,7 +9,7 @@
 
 
 
-<h1 align="center">ᴡɪᴘ.</h1>
+<h1 align="center">wip. </h1>
 
 
-<h1 align="center">ꜱɪɢɴ ꜱᴛʀᴀᴡ ᴏʀ ᴀᴛᴀ ʙᴇꜰᴏʀᴇ ʏᴏᴜ ɢᴏ..</h1>
+<h1 align="center">𝔰𝔦𝔤𝔫 𝔰𝔱𝔯𝔞𝔴 𝔬𝔯 𝔞𝔱𝔞 𝔟𝔢𝔣𝔬𝔯𝔢 𝔶𝔬𝔲 𝔤𝔬.</h1>
