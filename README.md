@@ -56,6 +56,7 @@ warrior cats
 my oc x canon loverduo I LOVE THEM SO MUCH PLEASE FEEL FREE TO SHIP THEM/ASK THINGS ABOUT THEM THERE SO CUTE OFMMYGOD
 and whatever else i remember later
 <img width="300" height="300" alt="Screenshot 2026-05-05 at 12-25-47 🎮 Pony Town" src="https://github.com/user-attachments/assets/c46ea05a-8d13-435e-90fc-9fba971ea399" />
+ALSO I LOVE YOU PERSON THAT DREW THIS OPPENMHEIMER IM GOING TO CHERISH IT FOREVER OHIHJJ YEAHSEGJHJHGF<img width="300" height="295" alt="Screenshot 2026-05-17 at 13-07-00 StrawPage Dashboard" src="https://github.com/user-attachments/assets/4eef64d3-a215-4f3f-a2b0-6db549159468" />
 
 
 </details>
