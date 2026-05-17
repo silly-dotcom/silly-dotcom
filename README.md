@@ -53,7 +53,7 @@ Oppenheimer
 the dsmp
 cod/tf141
 warrior cats
-my oc x canon loverduo I LOVE THEM SO MUCH PLEASE FEEL FREE TO SHIP THEM/ASK THINGS ABOUT THEM THERE SO CUTE OFMMYGOD
+my oc x canon #yaoi
 idk what else
 <img width="300" height="300" alt="Screenshot 2026-05-05 at 12-25-47 🎮 Pony Town" src="https://github.com/user-attachments/assets/c46ea05a-8d13-435e-90fc-9fba971ea399" />
 
