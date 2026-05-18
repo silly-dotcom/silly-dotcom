@@ -1,6 +1,6 @@
 <p align="center">
-  <img width="460" height="300" src="https://i1-e.pinimg.com/736x/f3/3c/67/f33c674c4e33161013ff3868872e2ec4.jpg">
-</p> 
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDY3M2tzc3d3c2tmMGE4NjZiNmtoZXRxdzZ5ZmtkbGhjMGJxMHN1aSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/QCCfO4i7oT5XW/giphy.gif" alt="animated" />
+</p>
 
 
 
@@ -10,4 +10,15 @@
 
 
 <h1 align="center">𝔴𝔦𝔭.</h1> 
+
+
+
+
+
+
+
+
+
+
+
 
