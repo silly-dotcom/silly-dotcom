@@ -21,7 +21,7 @@
 
 
 
-i swore at them before this photo
+<h1 align="center">i swore at them in german before this photo</h1> 
 <p align="center">
     <img width="500" src="https://i.imgur.com/JaFsTwN.png">
 </p>
