@@ -21,7 +21,7 @@
 
 
 
-
+i swore at them before this photo
 <p align="center">
     <img width="500" src="https://i.imgur.com/JaFsTwN.png">
 </p>
