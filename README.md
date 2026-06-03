@@ -42,3 +42,41 @@ comment down below if you think i like Oppenheimer idk man i think i do
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
