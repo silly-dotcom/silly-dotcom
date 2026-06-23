@@ -41,7 +41,7 @@ comment down below if you think i like Oppenheimer idk man i think i do
 
 
 
-
+little rant if you even care hi its me kaiser sorry ive been like. hugely inactive and have been off for days at a time i kinda like.. had a burnout + my grandma came over so ive just kinda been doing nothing besides talking to another friend on a diff website so um. ill make a comeback trust me i just had a chud little burnout sorry to all my friends im not dead confirmed pls int with me again im lonely
 
 
 
