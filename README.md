@@ -2,7 +2,7 @@
 
 
 
-remaking sorry chat
+remaking sorry chat (dividers by @pixopix on tumblr thank u goat)
 
 
 
