@@ -1,4 +1,5 @@
-<img width="2048" height="171" alt="tumblr_f299627304e3c15d6902cbcccc959022_3dda6821_2048" src="https://github.com/user-attachments/assets/779c73fd-8ec0-49aa-a3a0-1b0852396aab" />
+https://files.catbox.moe/os7d8l.png
+
 
 remaking sorry chat
 
