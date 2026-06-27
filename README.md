@@ -6,7 +6,7 @@ remaking sorry chat (dividers by @pixopix on tumblr thank u goat)
 
 
 
-
+![](https://files.catbox.moe/q7ooml.png)
 
 
 
