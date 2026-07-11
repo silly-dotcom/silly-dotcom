@@ -1,14 +1,8 @@
-![](https://files.catbox.moe/os7d8l.png)
+ok im too lazy to remakw this
 
 
 
-remaking sorry chat (dividers by @pixopix on tumblr thank u goat)
-
-
-
-![](https://files.catbox.moe/q7ooml.png)
-
-
+<img width="736" height="414" alt="White boy" src="https://github.com/user-attachments/assets/44a51d0c-de43-41a6-bff7-c23608d21a14" />
 
 
 
