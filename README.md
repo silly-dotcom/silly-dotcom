@@ -1,4 +1,4 @@
-i hate the pfp i made!!!! its not anybody elses fault im just ass at everything!!!
+
 
 <img width="935" height="320" alt="Screenshot from 2026-07-11 20-01-28" src="https://github.com/user-attachments/assets/01a6544a-aca5-4751-b214-6ec29290462e" />
 <img width="931" height="311" alt="Screenshot from 2026-07-11 20-01-16" src="https://github.com/user-attachments/assets/4f2f6b0e-4790-4b57-8586-cd81636185b8" />
