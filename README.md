@@ -2,7 +2,8 @@ ok im too lazy to remakw this
 
 
 
-<img width="736" height="414" alt="White boy" src="https://github.com/user-attachments/assets/44a51d0c-de43-41a6-bff7-c23608d21a14" />
+<img width="735" height="245" alt="189291990582642559" src="https://github.com/user-attachments/assets/a03e1d10-b91f-41de-aa55-218e6c80412a" />
+
 
 
 
