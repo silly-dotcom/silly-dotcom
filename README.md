@@ -1,5 +1,5 @@
-ok im too lazy to remakw this
-
+I HAT EMY PFP I HATE MY PFP I HATWE MY PFP IAHTE MY PFP
+I HATE MOOD SWINGS KILL ME
 
 
 <img width="735" height="245" alt="189291990582642559" src="https://github.com/user-attachments/assets/a03e1d10-b91f-41de-aa55-218e6c80412a" />
