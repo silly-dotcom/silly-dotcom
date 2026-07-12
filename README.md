@@ -1,4 +1,4 @@
-i  f eel horrible ya ay!!!! thats to0toaly not sarcasm!!
+i hate the pfp i made!!!! its not anybody elses fault im just ass at everything!!!
 
 
 <img width="735" height="245" alt="189291990582642559" src="https://github.com/user-attachments/assets/a03e1d10-b91f-41de-aa55-218e6c80412a" />
