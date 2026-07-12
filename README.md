@@ -1,7 +1,5 @@
 
-
-<img width="935" height="320" alt="Screenshot from 2026-07-11 20-01-28" src="https://github.com/user-attachments/assets/01a6544a-aca5-4751-b214-6ec29290462e" />
-<img width="931" height="311" alt="Screenshot from 2026-07-11 20-01-16" src="https://github.com/user-attachments/assets/4f2f6b0e-4790-4b57-8586-cd81636185b8" />
+<img width="735" height="665" alt="6333255725158949" src="https://github.com/user-attachments/assets/11e2d877-6efb-4dc0-aa29-90df550654f2" />
 
 
 
