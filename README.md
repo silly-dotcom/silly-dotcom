@@ -1,5 +1,4 @@
 idk what the FUCK to do with this readme
-<img width="300" height="200" alt="6333255725158949" src="https://github.com/user-attachments/assets/11e2d877-6efb-4dc0-aa29-90df550654f2" />
 
 
 
