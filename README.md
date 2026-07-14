@@ -1,9 +1,10 @@
-
-<img width="735" height="665" alt="6333255725158949" src="https://github.com/user-attachments/assets/11e2d877-6efb-4dc0-aa29-90df550654f2" />
-
-
+idk what the FUCK to do with this readme
+<img width="300" height="200" alt="6333255725158949" src="https://github.com/user-attachments/assets/11e2d877-6efb-4dc0-aa29-90df550654f2" />
 
 
+
+
+<img width="270" height="270" alt="Slay Eat GIF" src="https://github.com/user-attachments/assets/3a52a37b-ab49-495c-b6ba-38d969fc1a90" />
 
 
 
