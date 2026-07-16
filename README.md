@@ -12,7 +12,10 @@ idk what the FUCK to do with this readme
 
 
 
+PLEASE PLEASE PLEASE go check out @title-town and @favorite-town !!! 
 
+
+ponytowns Oppenheimer on @title-town , Oppenheimers numba 1 fan of @favorite-town .
 
 
 
