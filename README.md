@@ -19,7 +19,7 @@ ponytowns Oppenheimer on @title-town ja
 
 https://oppieenthusiast.lurk.me/ go chewck my lurk.me out
 
-
+also dont go whining at me when i block you if i block you its for a reason
 
 
 
