@@ -17,7 +17,7 @@ idk what the FUCK to do with this readme
 
 ponytowns Oppenheimer on @title-town ja
 
-
+https://oppieenthusiast.lurk.me/ go chewck my lurk.me out
 
 
 
