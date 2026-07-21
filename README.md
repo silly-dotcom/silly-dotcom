@@ -10,7 +10,7 @@ idk what the FUCK to do with this readme
 
 <img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=Red&right_color=Blue&left_text=homosexuals;"/>
 
-
+redmmmblbue.//..,.,.,
 
 
 
@@ -20,7 +20,6 @@ ponytowns Oppenheimer on @title-town ja
 
 https://oppieenthusiast.lurk.me/ go chewck my lurk.me out
 
-also dont go whining at me when i block you if i block you its for a reason
 
 
 
