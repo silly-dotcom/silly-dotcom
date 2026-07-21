@@ -8,6 +8,7 @@ idk what the FUCK to do with this readme
 
 
 
+<img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=Khaki&right_color=LightGoldenrodYellow&left_text=homosexuals;"/>
 
 
 
