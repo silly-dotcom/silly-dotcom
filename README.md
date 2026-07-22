@@ -29,7 +29,7 @@ https://oppieenthusiast.lurk.me/ go chewck my lurk.me out
 
 
 
-<img width="891" height="524" alt="Screenshot 2026-07-22 at 13-45-35 Online Whiteboard 87351973-5874-9045" src="https://github.com/user-attachments/assets/e2af8a23-72ee-48d5-9fca-d08461e700be" />
+<img width="915" height="598" alt="Screenshot 2026-07-22 at 13-48-59 Online Whiteboard 87351973-5874-9045" src="https://github.com/user-attachments/assets/132c384f-e20d-4b72-a965-dbba163efad9" />
 
 
 hi i have an issue i think
