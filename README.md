@@ -33,14 +33,15 @@ https://oppieenthusiast.lurk.me/ go chewck my lurk.me out
 
 
 hi i have an issue i think
+these are all me go look me up on sum of these ja?
 
 
 
 
 
-PLEASE PLEASE PELASE ATTACK ME ON ARTFIGHT I NEED PEOPLE TO DRAW
+<img width="736" height="587" alt="stratt and grace - project hail mary fanart" src="https://github.com/user-attachments/assets/339d939a-12ac-4c79-bf47-a1d0e5edb912" />
 
 
-
+im really intop 0profject hail maryt❤️❤️❤️❤️❤️❤️❤️❤️❤️v
 
 
