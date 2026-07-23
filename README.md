@@ -38,7 +38,7 @@ hi i have an issue i think
 
 
 
-
+PLEASE PLEASE PELASE ATTACK ME ON ARTFIGHT I NEED PEOPLE TO DRAW
 
 
 
