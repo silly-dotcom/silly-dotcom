@@ -22,6 +22,6 @@ idk what the FUCK to do with this readme
 
 ponytowns Oppenheimer on @title-town 
 
-
+i have one nominated thing but 500 followers. someone tell me if ive been nominated for something
 
 
