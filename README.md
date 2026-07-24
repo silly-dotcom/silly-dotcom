@@ -1,3 +1,12 @@
+
+
+
+ok i cant even be jokign THANK YUO ALL FOR 500 FOLLOWERS AND OR LESS?????????????????????????????????????????????? WTF???????????????????? HOW DID I GET TS FAR???????????????/ 
+
+
+
+
+
 idk what the FUCK to do with this readme
 
 
@@ -13,35 +22,6 @@ idk what the FUCK to do with this readme
 
 ponytowns Oppenheimer on @title-town 
 
-https://oppieenthusiast.lurk.me/ go chewck my lurk.me out
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<img width="915" height="598" alt="Screenshot 2026-07-22 at 13-48-59 Online Whiteboard 87351973-5874-9045" src="https://github.com/user-attachments/assets/132c384f-e20d-4b72-a965-dbba163efad9" />
-
-
-hi i have an issue i think
-these are all me go look me up on sum of these ja?
-
-
-
-
-
-<img width="736" height="587" alt="stratt and grace - project hail mary fanart" src="https://github.com/user-attachments/assets/339d939a-12ac-4c79-bf47-a1d0e5edb912" />
-
-
-im really intop 0profject hail maryt❤️❤️❤️❤️❤️❤️❤️❤️❤️v
 
 
