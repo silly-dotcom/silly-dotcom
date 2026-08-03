@@ -24,5 +24,6 @@ ponytowns Oppenheimer on @title-town
 
 also uhm. hi thanks my alt
 <img width="421" height="44" alt="Screenshot 2026-08-02 at 19-38-14 bigmanschlatt" src="https://github.com/user-attachments/assets/301bc9ba-2a3a-4efb-9b31-8bb99e38080b" />                              
-also my alt is @oppieenthusiast go nominate someone there i gues s
+also my alt is @oppieenthusiast go nominate someone there i gues s                         
+<img width="465" height="50" alt="Screenshot 2026-08-03 at 15-33-15 ponytown-nominations (💠 )" src="https://github.com/user-attachments/assets/29e4cbcf-5e65-4abc-a354-4a5055bf0136" />       @ponytown-nominations YAY
 
