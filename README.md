@@ -20,8 +20,9 @@ idk what the FUCK to do with this readme
 <img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=Red&right_color=Blue&left_text=homosexuals;"/>
 
 
-ponytowns Oppenheimer on @title-town 
+ponytowns Oppenheimer on @title-town                  
 
-i have one nominated thing but 500 followers. someone tell me if ive been nominated for something
+also uhm. hi thanks my alt
+<img width="421" height="44" alt="Screenshot 2026-08-02 at 19-38-14 bigmanschlatt" src="https://github.com/user-attachments/assets/301bc9ba-2a3a-4efb-9b31-8bb99e38080b" />
 
 
