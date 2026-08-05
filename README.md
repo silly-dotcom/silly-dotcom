@@ -20,5 +20,5 @@ idk what the FUCK to do with this readme
 <img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=Red&right_color=Blue&left_text=homosexuals;"/>
 
 
-[mw da gaaaaaaaaang](https://rentry.co/hheadache)
+[m/w da gaaaaaaaaang](https://rentry.co/hheadache)
 
