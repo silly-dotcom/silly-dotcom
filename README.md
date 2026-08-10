@@ -6,7 +6,7 @@ i realy like yellow deltarune i just dont wanna do SHIT to redo this readme or m
 
 
 
-idk what the FUCK to do with this readme
+burp
 
 
 
