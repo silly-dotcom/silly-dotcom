@@ -25,4 +25,4 @@ burp
 
 
 
-hi if you want pluralspace codes if you know me and your a sys friend just ask i only use it for trackingwho i feel like and rarely use it but. your free to ask ig uess
+hi if you want pluralspace codes if you know me and your a sys friend just ask specifically on pt whispers or magma. i only use it for trackingwho i feel like and rarely use it but. your free to ask ig uess
