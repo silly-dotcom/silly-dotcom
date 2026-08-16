@@ -1,11 +1,4 @@
 
-
-
-i realy like yellow deltarune i just dont wanna do SHIT to redo this readme or my alt so. whatever
-
-
-
-
 burp
 
 
