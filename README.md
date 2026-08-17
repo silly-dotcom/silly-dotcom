@@ -57,7 +57,7 @@ ok thanks for coming to my ted talk. flies into the sun
 
 
   <p align="center">
-  i luv my friends #tru
+  i love my friends but i had to goof off making this
 </p>
 
 
@@ -80,7 +80,19 @@ ok thanks for coming to my ted talk. flies into the sun
 
 
 
-
-
 <img width="200" height="200" alt="3fs(17)" src="https://github.com/user-attachments/assets/955babbc-89d2-498e-a423-f5a21309cd45" />
 
+
+
+<img width="200" height="200" alt="#oppenheimer #oppie #jrobertoppenheimer(2)" src="https://github.com/user-attachments/assets/5cdf36df-3c40-4c59-8a9e-02306bc547a4" />
+
+
+<img width="200" height="200" alt="Screenshot 2026-08-16 at 14-22-54 stinkyjacob (@stinkyjacob) TikTok" src="https://github.com/user-attachments/assets/26e65fb8-586e-432f-b0c2-907744f5ffe0" />
+
+
+
+<img width="200" height="200" alt="okay_" src="https://github.com/user-attachments/assets/75db4261-a1fe-457b-a123-e99a3e61e860" />
+
+
+
+<img width="200" height="200" alt="get-out-ma-oven" src="https://github.com/user-attachments/assets/226691f2-88eb-46b0-b137-973a905ac3b6" />
