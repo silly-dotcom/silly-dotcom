@@ -1,15 +1,11 @@
 
 
-<img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=Red&right_color=Blue&left_text=homosexuals;"/>
+<img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=LightRed&right_color=LightRed&left_text=homosexuals;"/>
 
 
 [dont use rentry, please read.](https://www.tumblr.com/vocaloidtransparents/824069364392329216/stop-using-rentry)
 
 
-
-
-
-\i have 3 braincells and they all dont remember typing that so uhm. whyatever
 <details>
   <summary>basic info abt me</summary>
 hi call me kaiser. or kai. or oppie. or the. or whatever else on my prns.cc 
@@ -28,11 +24,13 @@ usually in a pony of whatever my current hyperfix is but i do wear other skins l
 
 idk what else shout out to my friends. 
 
-ok thanks for coming to my ted talk. flies into the sun           
+ok thanks for coming to my ted talk. flies into the sun  
+   
+[my alt burp](https://github.com/blellowflowers)
 </details>
 
 
-[my alt burp](https://github.com/blellowflowers)
+
 
 
 
