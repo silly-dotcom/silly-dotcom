@@ -99,6 +99,7 @@ ok thanks for coming to my ted talk. flies into the sun
 
 
 
-<img width="200" height="200" alt="gif(1)" src="https://github.com/user-attachments/assets/75c3290d-6016-417f-845d-f5cde104d4de" />
+<img width="200" height="200" alt="gif(2)" src="https://github.com/user-attachments/assets/a69df989-df86-4be3-acf3-4fcc3627c3c4" />
+
 
 
