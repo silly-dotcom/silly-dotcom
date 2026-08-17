@@ -1,13 +1,4 @@
 
-burp
-
-
-
-
-<img width="270" height="270" alt="Slay Eat GIF" src="https://github.com/user-attachments/assets/3a52a37b-ab49-495c-b6ba-38d969fc1a90" />
-
-
-
 
 <img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=Red&right_color=Blue&left_text=homosexuals;"/>
 
@@ -42,3 +33,56 @@ ok thanks for coming to my ted talk. flies into the sun
 
 
 [my alt burp](https://github.com/blellowflowers)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+  <p align="center">
+  i luv my friends #tru
+</p>
+
+
+                             
+</details>
+<p align="center">
+  <img width="200" height="200" src="https://github.com/user-attachments/assets/44a7485c-7a19-4d05-bfa9-c4da991daa66"            
+
+
+</p>
+</details>
+<p align="center">
+  <img width="200" height="200" src="https://github.com/user-attachments/assets/029df4d5-4db4-4abf-a8c5-51df79f2a82f" 
+
+</p>
+
+
+
+<img width="200" height="200" alt="NOOOOO…💔💔" src="https://github.com/user-attachments/assets/75f62400-c665-4998-9ac5-be2fa1bd0f8c" />
+
+
+
+
+
+<img width="200" height="200" alt="3fs(17)" src="https://github.com/user-attachments/assets/955babbc-89d2-498e-a423-f5a21309cd45" />
+
