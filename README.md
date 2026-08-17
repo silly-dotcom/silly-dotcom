@@ -98,4 +98,6 @@ ok thanks for coming to my ted talk. flies into the sun
 <img width="200" height="200" alt="get-out-ma-oven" src="https://github.com/user-attachments/assets/226691f2-88eb-46b0-b137-973a905ac3b6" />
 
 
-<img width="200" height="200" alt="644771194_887959764240848_3091889434020559664_n" src="https://github.com/user-attachments/assets/5670197f-0e35-44ff-aefa-c7d42bc58efc" />
+
+<img width="200" height="200" alt="470321258_1130940168691072_5167652941509432895_n" src="https://github.com/user-attachments/assets/cddc7585-3e37-4491-a2bd-154bb3204f8a" />
+
