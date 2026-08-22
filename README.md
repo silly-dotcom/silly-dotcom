@@ -43,7 +43,10 @@ remaking
 [dont use rentry, please read.](https://www.tumblr.com/vocaloidtransparents/824069364392329216/stop-using-rentry)
 </details>
 
-
+<details>
+  <summary></summary>
+readme art by me
+</details>
  ㅤ
 </p>
 </td>
