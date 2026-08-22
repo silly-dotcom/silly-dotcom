@@ -40,7 +40,7 @@ hi
 <div align="center"> 
 
 
-credits to pixelbrickz i stole (forked) there wip layout
+credits to pixelbrickz i stole (forked) their wip layout
 
 <details>
   <summary></summary>
