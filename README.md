@@ -1,7 +1,11 @@
 
 
 
+<div align="right">
 
+  $\texttt{\color{#795c48}the}$ $\texttt{\color{#664d3c}father}$ $\texttt{\color{574233}of}$ $\texttt{\color{#463528}the}$ $\texttt{\color{#35291f}atom}$ $\texttt{\color{#2a2018}bomb}$
+
+</p>
 
 
 
