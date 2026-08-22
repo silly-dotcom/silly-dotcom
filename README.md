@@ -22,6 +22,7 @@
 <img align="right" src="https://files.catbox.moe/r0enyh.png" alt="image" />
 
 
+
 <tr>
 <td>
 </p>
@@ -52,7 +53,7 @@ remaking
 
 <details>
   <summary></summary>
-readme art by me
+readme art by me yaaaaaaaay art
 </details>
  ㅤ
 </p>
