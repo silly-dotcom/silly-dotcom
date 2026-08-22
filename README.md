@@ -1,7 +1,3 @@
-<img width="500" height="79" alt="tumblr_d8327d25df70c0900a400ead557e274b_f2c051f3_250" src="https://github.com/user-attachments/assets/e063eab4-13d2-41e7-bf57-8471ca3ad17e" />
-<img width="500" height="79" alt="tumblr_d8327d25df70c0900a400ead557e274b_f2c051f3_250" src="https://github.com/user-attachments/assets/50977ab2-5783-4c28-a4b0-460a817e0f70" />
-
-
 
  
  
@@ -50,8 +46,6 @@ hi
 
 
 credits to pixelbrickz i stole (forked) their wip layout            
-&         
-credits to @curtainhshsh on tumblr for the banner                 
 
 <details>
   <summary></summary>
