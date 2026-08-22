@@ -7,7 +7,7 @@
 
 
 <details>
-  <summary>basic info abt me</summary>
+  <summary></summary>
 hi call me kaiser. or kai. or oppie. or the. or whatever else on my prns.cc 
          
 he/him or they/them i dont GAF             
@@ -31,4 +31,14 @@ ok thanks for coming to my ted talk. flies into the sun
 
 
 
-remaking once again i want it to be less messy
+<img align="right" src="https://files.catbox.moe/r0enyh.png" alt="image" />
+
+
+
+
+
+
+
+remaking brah
+
+
