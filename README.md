@@ -61,6 +61,7 @@ readme stickman art by me
 <details>
   <summary></summary>
 thnkas for 550+ followe rs.
+ 
 [extra info + links n stuff](https://oppieenthusiast.carrd.co/)
 </details>
 
