@@ -66,6 +66,13 @@ thnkas for 550+ followe rs.
 </details>
 
 
+<details>
+  <summary></summary>
+ban @lostcxuse RIGHT NOW!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+ <img width="500" height="200" alt="Screenshot from 2026-08-08 20-29-46" src="https://github.com/user-attachments/assets/7cc5028f-c9e4-44a8-a97c-411a80f3c3e8" />
+she wants me DEAD by this evidence right here!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1 /j
+</details>
+
  ㅤ
 </p>
 </td>
