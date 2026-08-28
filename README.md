@@ -49,19 +49,18 @@ hi
 credits to pixelbrickz i stole (forked) their wip layout            
 
 <details>
-  <summary></summary>
-remaking  
-&           
-readme stickman art by me              
+  <summary></summary>            
  
-[my alt hi](https://github.com/blellowflowers)
+[alt](https://github.com/blellowflowers) , ,
 [dont use rentry, please read.](https://www.tumblr.com/vocaloidtransparents/824069364392329216/stop-using-rentry)
 </details>
 
 
 <details>
   <summary></summary>
-thnkas for 550+ followe rs.
+hi i love my friiends and oomf sand moots and
+ 
+[𑣲 hera/jesse](https://github.com/orderofthepig) [𑣲 lukas](https://github.com/gaylukas) [𑣲 liv](https://github.com/slimxcl) [𑣲 otto](https://github.com/ottonass) [𑣲 sushki](https://github.com/mistersushki) [jasper](https://github.com/killbrickedd) [andy](https://github.com/whamaniac) [alex](https://github.com/toritilla) [dragondudes](https://github.com/transluzentt) [giggle](https://github.com/unpleasant-like) [jfk](https://github.com/Jfk1fan) [𑣲 xav](https://github.com/xathetic) [𑣲 kylo](https://github.com/lostcxuse) [robin/angelica](https://github.com/Canto8) [clover](https://github.com/Gamblersi) [𑣲 bat](https://github.com/sprinklesex) [𑣲 sam](https://github.com/Honourxble) [𑣲 helios/sage](https://github.com/my-jarona)
  
 [extra info + links n stuff](https://oppieenthusiast.carrd.co/)
 </details>
@@ -75,6 +74,8 @@ ban @lostcxuse RIGHT NOW!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 she wants me DEAD by this evidence right here!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1
  (this is all a joke ok..)
 </details>
+
+
 
  ㅤ
 </p>
