@@ -82,4 +82,9 @@ hi i love my friiends and oomf sand moots and
 
 
 <img width="200" height="300" alt="6a921e5401849d5297f2ac35" src="https://github.com/user-attachments/assets/acbc66e2-d7c9-43b4-ad6d-23c817dec662" />
+</p>
+
+thanks kylo
+
+<div align="center"> 
 
