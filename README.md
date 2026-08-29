@@ -68,11 +68,8 @@ hi i love my friiends and oomf sand moots and
 
 <details>
   <summary></summary>
-ban @lostcxuse RIGHT NOW!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
- <img width="500" height="200" alt="Screenshot from 2026-08-08 20-29-46" src="https://github.com/user-attachments/assets/7cc5028f-c9e4-44a8-a97c-411a80f3c3e8" /> <img width="500" height="200" alt="Screenshot from 2026-08-26 19-40-52" src="https://github.com/user-attachments/assets/34345155-04c0-4dd9-afe8-414ee2347c09" /><img width="500" height="300" alt="Screenshot from 2026-08-26 19-52-48" src="https://github.com/user-attachments/assets/d45af431-5f84-4773-93d6-08194d54da19" /><img width="500" height="300" alt="Screenshot from 2026-08-26 20-26-30" src="https://github.com/user-attachments/assets/324a3747-0ddc-450b-999d-3c4e0a7197f0" />
+<img width="200" height="300" alt="Screenshot from 2026-08-28 17-50-01" src="https://github.com/user-attachments/assets/41a19ef9-70a8-4139-9edd-cbcc37f8141f" />
 
-she wants me DEAD by this evidence right here!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1
- (this is all a joke ok..)
 </details>
 
 
