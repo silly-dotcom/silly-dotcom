@@ -69,7 +69,8 @@ hi i love my friiends and oomf sand moots and
 
 <details>
   <summary></summary>
-<img width="200" height="300" alt="Screenshot from 2026-08-28 17-50-01" src="https://github.com/user-attachments/assets/41a19ef9-70a8-4139-9edd-cbcc37f8141f" />
+ 
+![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=315kycgock6jgkdxpgri6me37pjq&count=6&duration=1&album=1&username=off&footer=wave&bg_color=000000&text_color=3d3846&artist_color=3d3846&meta_color=3d3846&accent_color=5e5c64&logo_color=77767b)
 
 </details>
 
