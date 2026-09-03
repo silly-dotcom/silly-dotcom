@@ -50,7 +50,8 @@ credits to pixelbrickz i stole (forked) their wip layout
 
 <details>
   <summary></summary>            
- <img width="300" height="400" alt="Screenshot 2026-08-28 at 23-25-26 总是XX" src="https://github.com/user-attachments/assets/0201c016-ec10-4895-9d8b-19ec3f1a50e6" />
+ <img width="310" height="231" alt="Screenshot 2026-09-03 at 15-30-09 StrawPage Dashboard" src="https://github.com/user-attachments/assets/a3e10bc1-279a-4db4-9945-d54524119914" />             
+             im mainly offtab/tabbed or afking & they sometimes sit at spots i prefer not to sit at. i also have spots i prefer and hence not move. they also may not be online. if they want to sit with me, they can feel free to. i mainly sit with pinned friends & near bakery.
 
 [alt](https://github.com/blellowflowers) , ,
 [dont use rentry, please read.](https://www.tumblr.com/vocaloidtransparents/824069364392329216/stop-using-rentry)
