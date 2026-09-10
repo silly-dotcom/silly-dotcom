@@ -139,9 +139,7 @@ not a communist
 
 <details>
   <summary></summary>
-hi i love my friiends and oomf sand moots and
- 
-[𑣲 hera/jesse](https://github.com/orderofthepig) [𑣲 lukas](https://github.com/gaylukas) [𑣲 liv](https://github.com/slimxcl) [𑣲 otto](https://github.com/ottonass) [𑣲 sushki](https://github.com/mistersushki) [jasper](https://github.com/killbrickedd) [andy](https://github.com/whamaniac) [alex](https://github.com/toritilla) [dragondudes](https://github.com/transluzentt) [giggle](https://github.com/unpleasant-like) [jfk](https://github.com/Jfk1fan) [𑣲 xav](https://github.com/xathetic) [𑣲 kylo](https://github.com/lostcxuse) [robin/angelica](https://github.com/Canto8) [clover](https://github.com/Gamblersi) [𑣲 bat](https://github.com/sprinklesex) [𑣲 sam](https://github.com/Honourxble) [𑣲 helios/sage](https://github.com/my-jarona)
+im very lazy to link all of my friends and oomfs and moots but i love u all platonically ok!!! runs awya into thye sunset
  
 [extra info + links n stuff](https://oppieenthusiast.carrd.co/)
 </details>
