@@ -155,7 +155,7 @@ also i dont care what u ship, just dont force a ship onto me & idc if u block me
 </p>
 </td>
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=true&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
 <img width="200" height="300" alt="6a921e5401849d5297f2ac35" src="https://github.com/user-attachments/assets/acbc66e2-d7c9-43b4-ad6d-23c817dec662" />
