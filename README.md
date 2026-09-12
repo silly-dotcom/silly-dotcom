@@ -140,6 +140,9 @@ not a communist
 <details>
   <summary></summary>
 im very lazy to link all of my friends and oomfs and moots but i love u all platonically ok!!! runs awya into thye sunset
+
+also i dont care what u ship, just dont force a ship onto me & idc if u block me over a ship. not my issue.
+
  
 [extra info + links n stuff](https://oppieenthusiast.carrd.co/)
 </details>
