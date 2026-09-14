@@ -139,11 +139,11 @@ not a communist
 
 <details>
   <summary>short info</summary>
-kaiser, kai, oppie, oppenheimer, the or silly. any is fine
-he/him or they/them
+kaiser, kai, oppie, oppenheimer, the or silly. any is fine            
+he/him or they/them            
 
-undiagnosed (i will be in maybe a month or two) and suspected autism, heart palpitations & daily/frequent headaches
-always int unless pony name says otherwise
+undiagnosed (i will be in maybe a month or two) and suspected autism, heart palpitations & daily/frequent headaches              
+always int unless pony name says otherwise                  
  
 [extra info + links n stuff](https://oppieenthusiast.carrd.co/)
 </details>
