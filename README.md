@@ -138,11 +138,12 @@ not a communist
 
 
 <details>
-  <summary></summary>
-im very lazy to link all of my friends and oomfs and moots but i love u all platonically ok!!! runs awya into thye sunset
+  <summary>short info</summary>
+kaiser, kai, oppie, oppenheimer, the or silly. any is fine
+he/him or they/them
 
-also i dont care what u ship, just dont force a ship onto me & idc if u block me over a ship. not my issue.
-
+undiagnosed (i will be in maybe a month or two) and suspected autism, heart palpitations & daily/frequent headaches
+always int unless pony name says otherwise
  
 [extra info + links n stuff](https://oppieenthusiast.carrd.co/)
 </details>
