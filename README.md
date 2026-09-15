@@ -138,13 +138,17 @@ not a communist
 
 
 <details>
-  <summary>short info</summary>
+  <summary>some info+pt info</summary>
 kaiser, kai, oppie, oppenheimer, the or silly. any of these names are fine.
 he/him or they/them.
+i get distracted some-what easily and cant focus well, and i often fiddle with something, do something with my hands/mouth or have to listen to something to focus better/do while i listen/type/whatever. if i accidentally miss something changing music/get too into fiddling with something, you are NOT boring, i simply just need something to fiddle with to focus better and it can make me a little too distracted or entertained on accident and i dont notice.
+im easy to be nervous and shy, though if it comes to friends i will get braver and speak for them if they cannot do so/are scared to do so. i will always likely interact first, but i can get nervous c*hing with some people.
+undiagnosed (i will be in maybe a month or two) and suspected autism, heart palpitations & daily/frequent headaches.
 
-undiagnosed (i will be in maybe a month or two) and suspected autism, heart palpitations & daily/frequent headaches.              
+ponytown info ;
 always int unless pony name says otherwise.
-w2i and c*h always.
+c*h always, but w2i depends on my pony name.
+dnc ponies. unsurprising.
  
 [extra info + links n stuff](https://oppieenthusiast.carrd.co/)
 </details>
