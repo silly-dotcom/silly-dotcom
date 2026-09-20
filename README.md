@@ -70,7 +70,6 @@ not a communist
 
 [creds](https://autism.crd.co/#) [creds](https://watermelon.crd.co/#) [creds](https://epic.crd.co/#) [creds](https://adriansblinkiecollection.neocities.org/)
 
-[alt](https://github.com/blellowflowers) , ,
 [dont use rentry, please read.](https://www.tumblr.com/vocaloidtransparents/824069364392329216/stop-using-rentry)
 </details>
 
