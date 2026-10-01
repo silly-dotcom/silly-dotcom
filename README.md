@@ -237,6 +237,23 @@ fanart by GOAT
 <img width="366" height="384" alt="Screenshot from 2026-05-30 20-36-02" src="https://github.com/user-attachments/assets/4d868006-2c82-4ba1-b069-827c03e8d3d4" />
 <img width="393" height="393" alt="Screenshot from 2026-05-30 19-04-26" src="https://github.com/user-attachments/assets/b8c4c5c0-3dd0-4e39-a84c-618cec5ed2ce" />
 <img width="399" height="335" alt="Screenshot from 2026-05-30 17-29-09" src="https://github.com/user-attachments/assets/0e5e28ae-9d12-43c8-8855-2c62f56c4927" />
+<img width="402" height="584" alt="Screenshot from 2026-09-09 17-49-27" src="https://github.com/user-attachments/assets/c10ffee7-bd6b-4b73-8461-e2e4a211d003" />
+<img width="388" height="357" alt="Screenshot from 2026-09-10 22-28-39" src="https://github.com/user-attachments/assets/4f7b0ef3-a2e9-4d07-bd86-40ff658f3eae" />
+<img width="387" height="619" alt="Screenshot from 2026-09-10 22-38-28" src="https://github.com/user-attachments/assets/2e855d48-38ae-45c4-81a0-7464febc0392" />
+<img width="333" height="255" alt="Screenshot from 2026-09-13 12-57-21" src="https://github.com/user-attachments/assets/b28df0e7-f3dd-4810-9ac0-6e9f2a255dc3" />
+<img width="209" height="205" alt="Screenshot from 2026-09-15 16-32-39" src="https://github.com/user-attachments/assets/a6f1e0d8-cb88-463c-baa5-875acee7eff5" />
+<img width="382" height="301" alt="Screenshot from 2026-09-18 14-52-18" src="https://github.com/user-attachments/assets/10fe2224-c49e-49a0-a8f3-ba24a2cb3697" />
+<img width="147" height="78" alt="Screenshot from 2026-09-21 16-28-01" src="https://github.com/user-attachments/assets/73f3aaf4-b209-4be1-b5e7-71b204e9ab63" />
+<img width="411" height="492" alt="Screenshot from 2026-09-23 17-01-30" src="https://github.com/user-attachments/assets/4d902a83-55e3-4054-90ab-3a2c45067153" />
+<img width="411" height="335" alt="Screenshot from 2026-09-25 08-25-13" src="https://github.com/user-attachments/assets/e8b11174-b36c-4cd9-a2f0-957a87da5e40" />
+<img width="402" height="579" alt="Screenshot from 2026-09-25 08-25-28" src="https://github.com/user-attachments/assets/85c30e9d-f899-4eef-953d-4110816b1444" />
+<img width="405" height="507" alt="Screenshot from 2026-09-25 08-25-40" src="https://github.com/user-attachments/assets/d2c4e478-2801-4a12-bc9c-5794fc810325" />
+<img width="594" height="371" alt="Screenshot from 2026-09-25 16-31-05" src="https://github.com/user-attachments/assets/a291d968-ff03-438a-b104-614f5323e976" />
+<img width="386" height="337" alt="Screenshot from 2026-09-27 19-32-31" src="https://github.com/user-attachments/assets/efcc7fe3-d853-4960-a315-b9b3e88bcaf8" />
+<img width="396" height="174" alt="Screenshot from 2026-09-30 16-43-58" src="https://github.com/user-attachments/assets/66a6984f-ea03-40ec-8c6a-4dd73b34db24" />
+<img width="414" height="341" alt="Screenshot from 2026-09-30 16-44-53" src="https://github.com/user-attachments/assets/adbc5d3f-6144-4f43-b884-8071c04964b1" />
+<img width="319" height="230" alt="Screenshot from 2026-10-01 14-52-29" src="https://github.com/user-attachments/assets/90d9e379-b44b-471e-8223-59476a2b2b52" />
+<img width="300" height="200" alt="Screenshot from 2026-10-01 14-54-27" src="https://github.com/user-attachments/assets/58c13785-9d4b-403e-b944-6906f23de15b" />
 
 </details>
 </p>
