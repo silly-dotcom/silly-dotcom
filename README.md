@@ -214,6 +214,29 @@ fanart by GOAT
 <img width="420" height="423" alt="Screenshot from 2026-09-30 16-36-31" src="https://github.com/user-attachments/assets/18818a5d-0f1b-4605-b789-306b1e5fcebe" />
 <img width="413" height="310" alt="Screenshot from 2026-09-30 16-42-47" src="https://github.com/user-attachments/assets/b25cf2d5-8bbe-47be-a77e-07e14cbe3e5d" />
 <img width="413" height="438" alt="Screenshot from 2026-09-30 16-42-03" src="https://github.com/user-attachments/assets/1f085a9d-ea62-4dbd-9b30-9d757ffe059a" />
+<img width="360" height="180" alt="Screenshot from 2026-08-08 18-34-47" src="https://github.com/user-attachments/assets/feaf2404-ed5a-4e9b-a29d-efb1c9f29fab" />
+<img width="382" height="259" alt="Screenshot from 2026-08-08 13-53-06" src="https://github.com/user-attachments/assets/36d998b5-18c9-4e02-89b7-f744f5277b8e" />
+<img width="390" height="393" alt="Screenshot from 2026-08-07 00-11-17" src="https://github.com/user-attachments/assets/b8002185-764b-46cd-8096-3d5fd8081688" />
+<img width="338" height="164" alt="Screenshot from 2026-08-06 00-21-10" src="https://github.com/user-attachments/assets/92f179c8-581b-4d6d-a55a-032cc455e07a" />
+<img width="378" height="124" alt="Screenshot from 2026-08-06 16-04-29" src="https://github.com/user-attachments/assets/e968ff30-112f-4608-9bcc-2f563dd5868a" />
+<img width="393" height="400" alt="Screenshot from 2026-08-05 11-39-58" src="https://github.com/user-attachments/assets/e4d3f9eb-5448-49f0-9ea8-03394405e186" />
+<img width="378" height="398" alt="Screenshot from 2026-08-05 11-45-03" src="https://github.com/user-attachments/assets/664526b5-3a10-4e05-ab07-88bc27a27944" />
+<img width="389" height="382" alt="Screenshot from 2026-08-03 22-39-28" src="https://github.com/user-attachments/assets/a55dd329-c700-482a-b956-b4891cf9e64f" />
+<img width="321" height="241" alt="Screenshot from 2026-07-18 17-19-53" src="https://github.com/user-attachments/assets/bb1e2791-e3ec-4da0-93d1-6f05cbc4315d" />
+<img width="262" height="120" alt="Screenshot from 2026-06-28 19-29-44" src="https://github.com/user-attachments/assets/64a0b1cc-2bee-4496-a401-9cdc631df895" />
+<img width="385" height="385" alt="Screenshot from 2026-06-22 00-45-37" src="https://github.com/user-attachments/assets/f4389337-cb44-47dd-9ff1-6a7d15f5479a" />
+<img width="376" height="386" alt="Screenshot from 2026-06-22 21-47-24" src="https://github.com/user-attachments/assets/fd9d90b4-3581-4e08-be71-79d0a2ae30e3" />
+<img width="379" height="343" alt="Screenshot from 2026-06-18 21-13-29" src="https://github.com/user-attachments/assets/230c6895-713b-4537-b761-91c2b85c0fa9" />
+<img width="300" height="162" alt="Screenshot from 2026-06-16 17-06-13" src="https://github.com/user-attachments/assets/06684f19-139d-41f9-be85-f3c462e0a23d" />
+<img width="379" height="340" alt="Screenshot from 2026-06-16 16-14-31" src="https://github.com/user-attachments/assets/95d0d7a2-0cc9-4383-a9dc-746e34cadf26" />
+<img width="394" height="361" alt="Screenshot from 2026-06-15 22-02-28" src="https://github.com/user-attachments/assets/dd8e2c51-1ae4-4fe5-94e6-ade6940fc361" />
+<img width="411" height="518" alt="Screenshot from 2026-06-03 20-33-01" src="https://github.com/user-attachments/assets/5cf9b74c-4d1f-4c7d-ae4c-6865a1fedd32" />
+<img width="394" height="403" alt="Screenshot from 2026-06-01 23-03-09" src="https://github.com/user-attachments/assets/920117e6-6c41-404a-be60-9bfc43b08ac8" />
+<img width="377" height="337" alt="Screenshot from 2026-05-31 14-40-30" src="https://github.com/user-attachments/assets/f2d9af92-fabe-4071-af9d-2fe52cb4d0cd" />
+<img width="371" height="392" alt="Screenshot from 2026-05-30 21-37-26" src="https://github.com/user-attachments/assets/b8be54a2-5ad8-43d2-8a0b-93cd006974f1" />
+<img width="366" height="384" alt="Screenshot from 2026-05-30 20-36-02" src="https://github.com/user-attachments/assets/4d868006-2c82-4ba1-b069-827c03e8d3d4" />
+<img width="393" height="393" alt="Screenshot from 2026-05-30 19-04-26" src="https://github.com/user-attachments/assets/b8c4c5c0-3dd0-4e39-a84c-618cec5ed2ce" />
+<img width="399" height="335" alt="Screenshot from 2026-05-30 17-29-09" src="https://github.com/user-attachments/assets/0e5e28ae-9d12-43c8-8855-2c62f56c4927" />
 
 </details>
 </p>
