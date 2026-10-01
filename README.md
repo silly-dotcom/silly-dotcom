@@ -155,10 +155,18 @@ not a communist
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315kycgock6jgkdxpgri6me37pjq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=true&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
-<img width="200" height="300" alt="6a921e5401849d5297f2ac35" src="https://github.com/user-attachments/assets/acbc66e2-d7c9-43b4-ad6d-23c817dec662" />
+<details>
+  <summary>photos of friends</summary>
+<img width="346" height="184" alt="Screenshot 2026-05-24 at 11-57-17 🎮 Pony Town" src="https://github.com/user-attachments/assets/94ffcdd4-ae5b-4fb0-b57b-3e2877e54826" />
+<img width="366" height="431" alt="Screenshot from 2026-09-26 14-03-15" src="https://github.com/user-attachments/assets/de41eeea-8ed8-4a27-9307-654cdcde7349" />
+<img width="394" height="347" alt="Screenshot from 2026-09-18 14-54-32" src="https://github.com/user-attachments/assets/699facec-3d6a-4f93-8243-6d77ffcd6faa" />
+<img width="451" height="368" alt="Screenshot 2026-09-30 at 22-10-27 Online Whiteboard 77318865-9471-2767" src="https://github.com/user-attachments/assets/239fc956-d6c3-437b-af6b-b5ec8c91f7bd" />
+<img width="364" height="187" alt="Screenshot from 2026-09-12 16-20-32" src="https://github.com/user-attachments/assets/ccb6464b-75ad-4ece-9af3-e5b362f22ac5" />
+<img width="676" height="195" alt="Screenshot 2026-05-07 at 11-11-50 🎮 Pony Town" src="https://github.com/user-attachments/assets/4783fd15-1ffc-4f79-81cf-fee28ba4b9d9" />
+
+</details>
 </p>
 
-thanks kylo your just so poetic with this image you rival shakespear with these fine words
 
 <div align="center"> 
 
