@@ -163,6 +163,20 @@ not a communist
 <img width="451" height="368" alt="Screenshot 2026-09-30 at 22-10-27 Online Whiteboard 77318865-9471-2767" src="https://github.com/user-attachments/assets/239fc956-d6c3-437b-af6b-b5ec8c91f7bd" />
 <img width="364" height="187" alt="Screenshot from 2026-09-12 16-20-32" src="https://github.com/user-attachments/assets/ccb6464b-75ad-4ece-9af3-e5b362f22ac5" />
 <img width="676" height="195" alt="Screenshot 2026-05-07 at 11-11-50 🎮 Pony Town" src="https://github.com/user-attachments/assets/4783fd15-1ffc-4f79-81cf-fee28ba4b9d9" />
+<img width="291" height="293" alt="Screenshot from 2026-09-30 16-35-34" src="https://github.com/user-attachments/assets/fb94f631-a88e-4038-8894-4c4834305003" />
+<img width="400" height="400" alt="Screenshot from 2026-09-28 19-46-20" src="https://github.com/user-attachments/assets/ceb5b507-eaff-4110-9b47-6b2afd984e39" />
+<img width="655" height="220" alt="Screenshot from 2026-09-25 22-41-31" src="https://github.com/user-attachments/assets/1a647ec1-6678-4d37-8e9f-401abe116e9b" />
+<img width="613" height="459" alt="Screenshot from 2026-09-25 15-05-20" src="https://github.com/user-attachments/assets/bb3b9275-2a41-4a8b-90b2-706ffef53644" />
+<img width="300" height="300" alt="Screenshot from 2026-09-24 20-56-34" src="https://github.com/user-attachments/assets/78a7b198-339a-4901-917e-9b1caac02ca0" />
+<img width="674" height="554" alt="Screenshot from 2026-09-19 16-33-45" src="https://github.com/user-attachments/assets/748885c3-eef3-49fe-826d-5ff4b3bb9b73" />
+<img width="300" height="300" alt="Screenshot from 2026-09-18 15-54-32" src="https://github.com/user-attachments/assets/46de898b-d456-446d-979e-10110d6751d3" />
+<img width="378" height="218" alt="Screenshot from 2026-09-18 12-45-07" src="https://github.com/user-attachments/assets/6ec55936-c06c-473d-b561-0dcca5751b7a" />
+<img width="390" height="315" alt="Screenshot from 2026-09-09 18-17-49" src="https://github.com/user-attachments/assets/57f0b02c-1336-43b9-95fe-d790460ad08e" />
+<img width="390" height="390" alt="Screenshot from 2026-09-07 20-11-08" src="https://github.com/user-attachments/assets/65ab05e2-4efd-46bd-82e1-e47d9feb7e5c" />
+<img width="300" height="300" alt="Screenshot from 2026-09-07 18-07-35" src="https://github.com/user-attachments/assets/16d1a276-1494-4a2b-86d9-2e9b7fa882dd" />
+<img width="400" height="400" alt="Screenshot from 2026-09-04 17-09-27" src="https://github.com/user-attachments/assets/0d95591c-3aed-46b7-8ece-f2cf0a096f98" />
+<img width="753" height="585" alt="Screenshot from 2026-09-04 18-04-46" src="https://github.com/user-attachments/assets/eef68cef-be0e-4f7f-a9f7-8c55b8d46ab3" />
+<img width="613" height="193" alt="Screenshot 2026-10-01 at 13-59-07 🎮 Pony Town" src="https://github.com/user-attachments/assets/9d6c3c3c-57a0-4b6d-a309-97ceac8e1cf9" />
 
 </details>
 </p>
