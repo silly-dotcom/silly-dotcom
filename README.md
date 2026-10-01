@@ -196,8 +196,20 @@ not a communist
 <img width="417" height="514" alt="Screenshot from 2026-09-30 16-39-21" src="https://github.com/user-attachments/assets/27e6f166-9923-4584-9ed6-c4bd18917a58" />
 <img width="311" height="285" alt="Screenshot from 2026-09-26 20-22-33" src="https://github.com/user-attachments/assets/e7142000-c463-44f6-9bb6-db78e57aa1c1" />
 <img width="376" height="181" alt="Screenshot from 2026-09-26 18-52-26" src="https://github.com/user-attachments/assets/11550a65-7a1c-45dc-a6ba-ecbb0baa7b5e" />
-
 <img width="287" height="104" alt="Screenshot from 2026-09-26 18-23-02" src="https://github.com/user-attachments/assets/053283fe-8b14-44d4-a954-cab322d0836a" />
+<img width="707" height="611" alt="image" src="https://github.com/user-attachments/assets/574bbf68-3e2e-40ed-8144-87889ea02036" />
+<img width="504" height="334" alt="image" src="https://github.com/user-attachments/assets/00ea6bba-72e4-41ae-aecd-c5831c5b1170" />
+fanart by GOAT
+
+<img width="986" height="447" alt="image" src="https://github.com/user-attachments/assets/93fb4eb9-73e7-421a-9820-9be767223fdf" />
+<img width="463" height="70" alt="Screenshot from 2026-09-20 00-30-42" src="https://github.com/user-attachments/assets/152a48ca-be66-45cd-b214-211c3c83c16c" />
+<img width="524" height="75" alt="Screenshot from 2026-09-20 00-16-17" src="https://github.com/user-attachments/assets/9d9e9180-5fcb-4b6e-abe9-116480828e76" />
+<img width="246" height="297" alt="Screenshot from 2026-09-19 16-31-02" src="https://github.com/user-attachments/assets/d80e6ba2-23a0-4b7d-bf5d-2bc12fecfe61" />
+<img width="213" height="146" alt="Screenshot from 2026-09-18 15-59-36" src="https://github.com/user-attachments/assets/908e8da9-15b9-4743-b118-71c3773dab1a" />
+<img width="320" height="103" alt="Screenshot from 2026-09-18 16-12-36" src="https://github.com/user-attachments/assets/85174a27-aa46-40b8-95d6-e16a0ab40324" />
+<img width="346" height="275" alt="Screenshot from 2026-09-16 19-47-41" src="https://github.com/user-attachments/assets/8ddeb419-0fa3-40ad-82f3-719d7db24d17" />
+<img width="448" height="220" alt="Screenshot from 2026-09-13 12-27-04" src="https://github.com/user-attachments/assets/e0ed0e51-7559-4ff1-944d-e4427d5c8fc7" />
+<img width="394" height="205" alt="Screenshot from 2026-09-11 20-49-53" src="https://github.com/user-attachments/assets/5317e1db-ba35-4207-b1e7-e5cce0c1e8a9" />
 
 </details>
 </p>
