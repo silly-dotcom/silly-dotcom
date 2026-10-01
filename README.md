@@ -210,6 +210,10 @@ fanart by GOAT
 <img width="346" height="275" alt="Screenshot from 2026-09-16 19-47-41" src="https://github.com/user-attachments/assets/8ddeb419-0fa3-40ad-82f3-719d7db24d17" />
 <img width="448" height="220" alt="Screenshot from 2026-09-13 12-27-04" src="https://github.com/user-attachments/assets/e0ed0e51-7559-4ff1-944d-e4427d5c8fc7" />
 <img width="394" height="205" alt="Screenshot from 2026-09-11 20-49-53" src="https://github.com/user-attachments/assets/5317e1db-ba35-4207-b1e7-e5cce0c1e8a9" />
+<img width="410" height="425" alt="Screenshot from 2026-09-30 16-40-17" src="https://github.com/user-attachments/assets/8ee196d9-7760-4098-a0b6-243a5d18ecc8" />
+<img width="420" height="423" alt="Screenshot from 2026-09-30 16-36-31" src="https://github.com/user-attachments/assets/18818a5d-0f1b-4605-b789-306b1e5fcebe" />
+<img width="413" height="310" alt="Screenshot from 2026-09-30 16-42-47" src="https://github.com/user-attachments/assets/b25cf2d5-8bbe-47be-a77e-07e14cbe3e5d" />
+<img width="413" height="438" alt="Screenshot from 2026-09-30 16-42-03" src="https://github.com/user-attachments/assets/1f085a9d-ea62-4dbd-9b30-9d757ffe059a" />
 
 </details>
 </p>
