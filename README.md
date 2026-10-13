@@ -148,6 +148,7 @@ also for huge context killian is an oc i have with a friend i might give some th
 <details>
   <summary>photos of friends</summary>
  uhm there is bad words and bad people mentioned and very crude humor/words in this but i hope you enjoy
+ and also adolf hitler ig uess
 <img width="346" height="184" alt="Screenshot 2026-05-24 at 11-57-17 🎮 Pony Town" src="https://github.com/user-attachments/assets/94ffcdd4-ae5b-4fb0-b57b-3e2877e54826" />
 <img width="366" height="431" alt="Screenshot from 2026-09-26 14-03-15" src="https://github.com/user-attachments/assets/de41eeea-8ed8-4a27-9307-654cdcde7349" />
 <img width="394" height="347" alt="Screenshot from 2026-09-18 14-54-32" src="https://github.com/user-attachments/assets/699facec-3d6a-4f93-8243-6d77ffcd6faa" />
