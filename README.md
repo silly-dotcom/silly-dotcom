@@ -51,26 +51,16 @@ credits to pixelbrickz i stole (forked) their wip layout
 <details>
   <summary></summary>            
 
+<img width="200" height="100" alt="Screenshot from 2026-10-12 21-50-53" src="https://github.com/user-attachments/assets/cccfd462-9c82-494b-90a1-fd8a7fdc5e51" />
+<img width="200" height="100" alt="Screenshot from 2026-10-12 18-37-46" src="https://github.com/user-attachments/assets/89838435-fd4a-4c59-83fd-515126c9edf6" />
+<img width="200" height="100" alt="Screenshot from 2026-10-12 18-35-16" src="https://github.com/user-attachments/assets/7ff0f797-7fee-4dfe-b528-832a2801a3c6" />
+<img width="200" height="100" alt="Screenshot from 2026-10-07 16-01-42" src="https://github.com/user-attachments/assets/e627838b-a370-4b38-8e38-be2a05d484fd" /> yaoi
+<img width="200" height="100" alt="Screenshot from 2026-10-07 16-03-13" src="https://github.com/user-attachments/assets/1eef307e-6845-4257-af9a-cb9d8b6d91dd" />
+<img width="200" height="100" alt="killian" src="https://github.com/user-attachments/assets/80e12f06-76be-4202-b0b4-f75533ae9ef7" />
+<img width="200" height="100" alt="Screenshot from 2026-10-07 16-09-21" src="https://github.com/user-attachments/assets/2a1ecc0e-f5c5-4bfa-bc70-e73fbcb3ff6e" /> is that you luisgamercool23..
 
-<img width="20" height="20" alt="aroace" src="https://github.com/user-attachments/assets/2901dd0b-a3fd-48bc-9592-69260233b3f5" />
-<img width="20" height="20" alt="trans" src="https://github.com/user-attachments/assets/9ee792f4-bd42-4985-8f57-94c05ba34a04" />
-<img width="20" height="20" alt="communist" src="https://github.com/user-attachments/assets/96119990-bc39-4a49-aebd-af58c6087acc" />
-<img width="20" height="20" alt="kitty" src="https://github.com/user-attachments/assets/b9f82594-593e-42d2-ac71-c17f47339af6" />
-<img width="24" height="16" alt="nonbinary" src="https://github.com/user-attachments/assets/14b42144-787c-481c-9a4f-a978cebf1628" />
-<img width="20" height="20" alt="doggie" src="https://github.com/user-attachments/assets/76230927-6b4d-4916-9cc8-869619822370" />
-<img width="20" height="20" alt="car" src="https://github.com/user-attachments/assets/e3c617f2-7aaa-4356-ad6b-4f78852492ba" />
-<img width="20" height="20" alt="FISHIEEEE" src="https://github.com/user-attachments/assets/1bb0baf0-8baf-491a-863e-f0ebe933bbe9" />
-<img width="20" height="20" alt="redman" src="https://github.com/user-attachments/assets/5f9f136c-0c29-406b-91ab-033e36bb51cd" />
-
-
-
-i like fishies!!                  
-not a communist
-
-
-[creds](https://autism.crd.co/#) [creds](https://watermelon.crd.co/#) [creds](https://epic.crd.co/#) [creds](https://adriansblinkiecollection.neocities.org/)
-
-[dont use rentry, please read.](https://www.tumblr.com/vocaloidtransparents/824069364392329216/stop-using-rentry)
+also for huge context killian is an oc i have with a friend i might give some things of him on my #tumblr
+[my tumblr go check it out](https://www.tumblr.com/oppieenthusiast)
 </details>
 
 
