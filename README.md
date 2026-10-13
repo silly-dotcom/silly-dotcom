@@ -66,16 +66,16 @@ also for huge context killian is an oc i have with a friend i might give some th
 
 <details>
   <summary>HUMOR/BYI</summary>
- most of these are if i trust you enough but.
- i have screenshots/i joke with specific friends about hitler or stalin, its how i am.
- i also joke about penises, or whatever else crude.
- i have a dark humor in general and make horrid jokes with specific friends.
- i like to joke about freaky things/or just be horny.
- i also make nazi jokes and or ww2 jokes.
- i like to make transgender/lgbtq jokes. I AM IN THE LGBTQ!!!! IT IS NOT MEANT TO DISRESPECT THE COMMUNITY!!
- all/most of these are with my closest friends, but if you dont like any of these being made around you PLEASE tell me
-<img width="200" height="200" alt="mala kirk" src="https://github.com/user-attachments/assets/f2da0779-f1ea-4fea-bf5f-8aebe52d90d4" />
-
+ <img width="200" height="300" alt="mala kirk" src="https://github.com/user-attachments/assets/f2da0779-f1ea-4fea-bf5f-8aebe52d90d4" />
+ most of these are if i trust you enough but. 
+ i have screenshots/i joke with specific friends about hitler or stalin, its how i am. 
+ i also joke about penises, or whatever else crude. 
+ i have a dark humor in general and make horrid jokes with specific friends. 
+ i like to joke about freaky things/or just be horny. 
+ i also make nazi jokes and or ww2 jokes. 
+ i like to make transgender/lgbtq jokes. I AM IN THE LGBTQ!!!! IT IS NOT MEANT TO DISRESPECT THE COMMUNITY!! 
+ all/most of these are with my closest friends, but if you dont like any of these being made around you PLEASE tell me. 
+ 
 </details>
 
 
