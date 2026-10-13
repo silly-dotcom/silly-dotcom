@@ -70,7 +70,7 @@ also for huge context killian is an oc i have with a friend i might give some th
  most of these are if i trust you enough but. 
  i have screenshots/i joke with specific friends about hitler or stalin, its how i am. 
  i also joke about penises, or whatever else crude. 
- i have a dark humor in general and make horrid jokes with specific friends. 
+ i have a dark humor in general and make horrid jokes with specific friends. (ex: the screenshots of when my friend says they'll beat me/me saying for them to stop beating me. its 100% a crude joke that we do often) 
  i like to joke about freaky things/or just be horny. 
  i also make nazi jokes and or ww2 jokes. 
  i like to make transgender/lgbtq jokes. I AM IN THE LGBTQ!!!! IT IS NOT MEANT TO DISRESPECT THE COMMUNITY!! 
