@@ -65,17 +65,16 @@ also for huge context killian is an oc i have with a friend i might give some th
 
 
 <details>
-  <summary>HUMOR/BYI</summary>
+  <summary></summary>
  <img width="200" height="300" alt="mala kirk" src="https://github.com/user-attachments/assets/f2da0779-f1ea-4fea-bf5f-8aebe52d90d4" />
- most of these are if i trust you enough but. 
- i have screenshots/i joke with specific friends about hitler or stalin, its how i am. 
- i also joke about penises, or whatever else crude. 
- i have a dark humor in general and make horrid jokes with specific friends. (ex: the screenshots of when my friend says they'll beat me/me saying for them to stop beating me. its 100% a crude joke that we do often) 
- i like to joke about freaky things/or just be horny. 
- i also make nazi jokes and or ww2 jokes. 
- i like to make transgender/lgbtq jokes. I AM IN THE LGBTQ!!!! IT IS NOT MEANT TO DISRESPECT THE COMMUNITY!! 
- all/most of these are with my closest friends, but if you dont like any of these being made around you PLEASE tell me. 
- 
+ <img width="200" height="300" alt="Screenshot from 2026-10-16 21-12-58" src="https://github.com/user-attachments/assets/b7b827d9-25eb-4c7a-b0af-07ba972a1cde" />
+<img width="200" height="300" alt="Screenshot from 2026-10-16 21-03-08" src="https://github.com/user-attachments/assets/89ddc785-eb2a-47d2-aa2a-72ddc8a8b86a" />
+<img width="400" height="300" alt="Screenshot from 2026-10-16 21-07-04" src="https://github.com/user-attachments/assets/55b1cbfb-1380-4217-b69f-18f6f3b7c64e" />
+<img width="196" height="141" alt="Screenshot from 2026-10-16 17-30-08" src="https://github.com/user-attachments/assets/eb84211d-2544-44dc-8f3a-d3d41dbf2870" />
+<img width="526" height="87" alt="Screenshot from 2026-10-15 21-40-00" src="https://github.com/user-attachments/assets/64d0d4a3-faaf-435f-9ed7-8446aee339a9" />
+<img width="426" height="47" alt="Screenshot from 2026-10-15 21-31-50" src="https://github.com/user-attachments/assets/f9d13738-437b-46c5-95bc-f68bd8038fd3" />
+<img width="568" height="147" alt="Screenshot from 2026-10-15 21-05-21" src="https://github.com/user-attachments/assets/16b2e27d-2408-483f-a5e0-c580fa2b671d" />
+
 </details>
 
 
