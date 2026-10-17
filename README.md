@@ -74,6 +74,11 @@ also for huge context killian is an oc i have with a friend i might give some th
 <img width="526" height="87" alt="Screenshot from 2026-10-15 21-40-00" src="https://github.com/user-attachments/assets/64d0d4a3-faaf-435f-9ed7-8446aee339a9" />
 <img width="426" height="47" alt="Screenshot from 2026-10-15 21-31-50" src="https://github.com/user-attachments/assets/f9d13738-437b-46c5-95bc-f68bd8038fd3" />
 <img width="568" height="147" alt="Screenshot from 2026-10-15 21-05-21" src="https://github.com/user-attachments/assets/16b2e27d-2408-483f-a5e0-c580fa2b671d" />
+<img width="232" height="18" alt="Screenshot from 2026-10-14 00-04-32" src="https://github.com/user-attachments/assets/f3af6904-93b4-463e-9a99-38edf8447cb2" />
+<img width="351" height="48" alt="Screenshot from 2026-10-13 23-28-24" src="https://github.com/user-attachments/assets/4cf5c6b0-64a6-4081-b467-c210cbaf1cac" />
+<img width="525" height="20" alt="Screenshot from 2026-10-13 23-26-12" src="https://github.com/user-attachments/assets/ec4223a4-549e-4be8-ba08-cab23c8a1316" />
+<img width="524" height="75" alt="Screenshot from 2026-09-20 00-16-17" src="https://github.com/user-attachments/assets/a676e882-115a-4937-8f1b-70295bd434a6" />
+<img width="463" height="70" alt="Screenshot from 2026-09-20 00-30-42" src="https://github.com/user-attachments/assets/570e7803-6012-4ac6-8c8a-7832f7aa0638" />
 
 </details>
 
