@@ -51,7 +51,7 @@ credits to pixelbrickz i stole (forked) their wip layout
 <details>
   <summary></summary>            
 
-<img width="200" height="100" alt="Screenshot from 2026-10-12 21-50-53" src="https://github.com/user-attachments/assets/cccfd462-9c82-494b-90a1-fd8a7fdc5e51" />
+<img width="300" height="100" alt="Screenshot from 2026-10-12 21-50-53" src="https://github.com/user-attachments/assets/cccfd462-9c82-494b-90a1-fd8a7fdc5e51" />
 <img width="200" height="100" alt="Screenshot from 2026-10-12 18-37-46" src="https://github.com/user-attachments/assets/89838435-fd4a-4c59-83fd-515126c9edf6" />
 <img width="200" height="100" alt="Screenshot from 2026-10-12 18-35-16" src="https://github.com/user-attachments/assets/7ff0f797-7fee-4dfe-b528-832a2801a3c6" />
 <img width="200" height="100" alt="Screenshot from 2026-10-07 16-01-42" src="https://github.com/user-attachments/assets/e627838b-a370-4b38-8e38-be2a05d484fd" /> yaoi
