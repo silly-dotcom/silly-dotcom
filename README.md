@@ -11,7 +11,10 @@ $\texttt{\color{#858585}In}$ $\texttt{\color{#6d6d6d}This}$ $\texttt{\color{#656
     <p>Oppenheimer enthusiast since 2025</p>
     <p>probably on wcue, so w2i</p>
     <p>c*hcomf + c*hhvyenc</p>
-    <p> <img width="100" height="50" alt="Bradar" src="https://github.com/user-attachments/assets/12590556-4cbe-4e2d-baf7-881b85eeb571" /> <p>
+    <p>JESUS CHRIST IVE MADE SOMETHING HORRIFIC</p>
+    <p> <img width="100" height="50" alt="Screenshot from 2026-10-20 21-02-43" src="https://github.com/user-attachments/assets/3e9af00b-7dda-48d5-8ab9-d121b4bbe1bc" /> <p>
+      <p>OH GOD LOOK AT IT</p>
+      <p>I REPENT FOR MY SINS</p>
     <p> <img width="100" height="50" alt="mewgenics(2)" src="https://github.com/user-attachments/assets/39483246-c277-49f4-9bb2-cd647fca6621" /> </p>
 <img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=LightRed&right_color=LightRed&left_text=homosexuals;"/></p> 
 
@@ -37,6 +40,7 @@ $\texttt{\color{#4f4f4f}To}$ $\texttt{\color{#403f3f}Our}$ $\texttt{\color{#3231
 
 
 <img width="1000" height="58" alt="image" src="https://github.com/user-attachments/assets/37b7579e-7a33-41ee-9a22-e24960c9c1db" />
+
 
 
 
