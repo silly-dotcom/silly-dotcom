@@ -11,10 +11,6 @@ $\texttt{\color{#858585}In}$ $\texttt{\color{#6d6d6d}This}$ $\texttt{\color{#656
     <p>Oppenheimer enthusiast since 2025</p>
     <p>probably on wcue, so w2i</p>
     <p>c*hcomf + c*hhvyenc</p>
-    <p>JESUS CHRIST IVE MADE SOMETHING HORRIFIC</p>
-    <p> <img width="100" height="50" alt="Screenshot from 2026-10-20 21-02-43" src="https://github.com/user-attachments/assets/3e9af00b-7dda-48d5-8ab9-d121b4bbe1bc" /> <p>
-      <p>OH GOD LOOK AT IT</p>
-      <p>I REPENT FOR MY SINS</p>
     <p> <img width="100" height="50" alt="mewgenics(2)" src="https://github.com/user-attachments/assets/39483246-c277-49f4-9bb2-cd647fca6621" /> </p>
 <img src="https://visitor-badge.laobi.icu/badge?page_id=silly-dotcom.silly-dotcom&left_color=LightRed&right_color=LightRed&left_text=homosexuals;"/></p> 
 
