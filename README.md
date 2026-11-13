@@ -6,7 +6,7 @@ $\texttt{\color{#858585}In}$ $\texttt{\color{#6d6d6d}This}$ $\texttt{\color{#656
 <div align="right">
   <details>
     <summary></summary>
-    <p>kaiser/kai/oppie</p>
+    <p>kaiser/kolso/kai/oppie</p>
     <p>any/all but no she</p>
     <p>Oppenheimer enthusiast since 2025</p>
     <p>always offline 😂✌️</p>
